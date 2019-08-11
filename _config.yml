@@ -4,13 +4,13 @@ name: Nina Gernow
 # Site info
 url: https://www.ninagernow.com
 
-title: Nina Gernow - peace, mind, awareness, happyness, you have it all!
+title: Nina Gernow - love and light, peace, mind, awareness, happiness, you have it all!
 
 # Used for Sitemap.xml and your RSS feed
 imagesurl: https://www.ninagernow.com/images
 
 # Short bio or description (displayed in the header)
-description: Peace, mind, awareness, happyness, you have it all!
+description: Love and light, peace, mind, awareness, happiness, you have it all! By Nina Gernow
 
 github: Nina Gernow
 encoding: UTF-8
@@ -20,7 +20,8 @@ kramdown:
 future: true
 jailed: false
 
-theme: jekyll-theme-cayman
+#theme: jekyll-theme-cayman
+theme: jekyll-theme-leap-day
 
 gfm_quirks: paragraph_end
 
