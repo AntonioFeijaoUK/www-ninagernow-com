@@ -1,3 +1,8 @@
+# Name of your site (displayed in the header)
+name: Nina Gernow
+
+# Short bio or description (displayed in the header)
+description: Nina Gernow website description
 
 github: Nina Gernow
 encoding: UTF-8
@@ -8,3 +13,13 @@ future: true
 jailed: false
 theme: jekyll-theme-cayman
 gfm_quirks: paragraph_end
+
+plugins:
+ - jekyll-feed
+ - jekyll-redirect-from
+ - jekyll-seo-tag
+ - jekyll-sitemap
+ - jekyll-avatar
+ - jemoji
+ - jekyll-mentions
+ - jekyll-include-cache
