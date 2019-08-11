@@ -21,7 +21,8 @@ future: true
 jailed: false
 
 #theme: jekyll-theme-cayman
-theme: jekyll-theme-leap-day
+#theme: jekyll-theme-leap-day
+theme: minima
 
 gfm_quirks: paragraph_end
 
