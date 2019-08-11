@@ -1,5 +1,7 @@
 # Nina Gernow
 
+---
+
 ## About Nina
 
 Nina...
