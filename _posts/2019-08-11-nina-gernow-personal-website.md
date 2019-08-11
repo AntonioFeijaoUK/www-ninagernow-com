@@ -11,5 +11,5 @@ categories:
 
 ## About Nina Gernow's personal website
 
-...
+Post...
 
