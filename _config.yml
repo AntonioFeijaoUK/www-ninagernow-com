@@ -25,6 +25,13 @@ plugins:
  - jekyll-include-cache
 
 
+# Site info
+
+url: https://www.ninagernow.com
+title: NinaGernow.com personal website
+
+
+
 #
 # Flags below are optional
 #
