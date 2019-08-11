@@ -12,7 +12,11 @@ description: Love and light, peace, mind, awareness, happiness, you have it all!
 # Used for Sitemap.xml and your RSS feed
 imagesurl: https://www.ninagernow.com/images
 
-github: Nina Gernow
+#github: Nina Gernow
+# https://help.github.com/en/articles/repository-metadata-on-github-pages
+# https://github.com/pages-themes/cayman
+# https://help.github.com/en/articles/configuring-jekyll
+
 encoding: UTF-8
 kramdown:
   input: GFM
