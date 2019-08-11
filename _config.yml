@@ -2,7 +2,7 @@
 name: Nina Gernow
 
 # Short bio or description (displayed in the header)
-description: Nina Gernow website description
+description: what this space...
 
 github: Nina Gernow
 encoding: UTF-8
@@ -23,3 +23,40 @@ plugins:
  - jemoji
  - jekyll-mentions
  - jekyll-include-cache
+
+
+#
+# Flags below are optional
+#
+
+# Includes an icon in the footer for each username you enter
+footer-links:
+  dribbble: 
+  email: nina.gernow@gmail.com
+  facebook: 
+  flickr: 
+  github: 
+  instagram: 
+  linkedin: 
+  pinterest: 
+  rss: # just type anything here for a working RSS icon, make sure you set the "url" above!
+  twitter: 
+
+# Your disqus shortname, entering this will enable commenting on posts
+disqus: 
+
+# Enter your Google Analytics web tracking code (e.g. UA-2110908-2) to activate tracking
+google_analytics: 
+
+# Enter your Mailchimp User ID and Campaign ID
+# @TODO: Add in a link for where to find these
+mailchimp:
+  user-id: REPLACEME
+  list-id: REPLACEME
+
+# Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
+# Used for Sitemap.xml and your RSS feed
+url: https://www.ninagernow.com
+imagesurl: https://www.ninagernow.com/images
+
+
