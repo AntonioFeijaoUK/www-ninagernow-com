@@ -1,8 +1,16 @@
 # Name of your site (displayed in the header)
 name: Nina Gernow
 
+# Site info
+url: https://www.ninagernow.com
+
+title: Nina Gernow - peace, mind, awareness, happyness, you have it all!
+
+# Used for Sitemap.xml and your RSS feed
+imagesurl: https://www.ninagernow.com/images
+
 # Short bio or description (displayed in the header)
-description: what this space...
+description: Peace, mind, awareness, happyness, you have it all!
 
 github: Nina Gernow
 encoding: UTF-8
@@ -11,7 +19,9 @@ kramdown:
   hard_wrap: false
 future: true
 jailed: false
+
 theme: jekyll-theme-cayman
+
 gfm_quirks: paragraph_end
 
 plugins:
@@ -24,17 +34,6 @@ plugins:
  - jekyll-mentions
  - jekyll-include-cache
 
-
-# Site info
-
-url: https://www.ninagernow.com
-title: NinaGernow.com personal website
-
-
-
-#
-# Flags below are optional
-#
 
 # Includes an icon in the footer for each username you enter
 footer-links:
@@ -58,12 +57,8 @@ google_analytics:
 # Enter your Mailchimp User ID and Campaign ID
 # @TODO: Add in a link for where to find these
 mailchimp:
-  user-id: REPLACEME
-  list-id: REPLACEME
+  user-id: 
+  list-id: 
 
-# Your website URL (e.g. http://barryclark.github.io or http://www.barryclark.co)
-# Used for Sitemap.xml and your RSS feed
-url: https://www.ninagernow.com
-imagesurl: https://www.ninagernow.com/images
 
 
