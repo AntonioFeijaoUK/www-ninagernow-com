@@ -1,8 +1,7 @@
 ---
 title: 'Nina Gernow personal website'
-author: Nina Gernow
+author: 'Nina Gernow'
 layout: post
-permalink: /nina-gernow-personal-website/
 dsq_thread_id:
   - 
 categories:
