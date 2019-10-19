@@ -1,5 +1,5 @@
 ---
-title: 'Nina Gernow's personal website'
+title: 'Nina Gernow personal website'
 author: Nina Gernow
 layout: post
 permalink: /nina-gernow-personal-website/
