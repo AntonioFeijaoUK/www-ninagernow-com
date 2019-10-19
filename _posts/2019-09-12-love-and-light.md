@@ -1,6 +1,12 @@
 ---
+title: 'Love and Light!'
+author: 'Nina Gernow'
 layout: post
-title:  "Love and Light!"
+categories:
+  - mindful
+tags:
+  - love
+  - light
 ---
 
 # Love and Light
