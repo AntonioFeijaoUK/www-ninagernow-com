@@ -1,4 +1,4 @@
-# Nina Gernow
+# [Nina Gernow](https://www.ninagernow.com)
 
 ![Nina Gernow](images/Nina-Gernow-photo01.jpg)
 
