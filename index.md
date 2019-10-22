@@ -1,7 +1,6 @@
 ---
 title: "Nina Gernow personal webpage"
 permalink: /
-layout: post
 author_profile: true
 ---
 
