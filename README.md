@@ -1,6 +1,8 @@
 ---
 title: "Nina Gernow personal webpage"
 permalink: /
+categories:
+  - blog
 author_profile: true
 ---
 
