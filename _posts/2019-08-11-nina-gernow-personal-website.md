@@ -1,11 +1,10 @@
 ---
 title: 'Nina Gernow personal website'
 author: 'Nina Gernow'
-layout: post
+categories:
+  - blog
 dsq_thread_id:
   - 
-categories:
-  - About
 ---
 
 ## About Nina Gernow's personal website
