@@ -3,4 +3,4 @@ permalink: /about/
 title: "About"
 ---
 
-Coming soon
+About Nina Gernow
