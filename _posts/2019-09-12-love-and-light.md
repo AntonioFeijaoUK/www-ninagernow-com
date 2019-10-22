@@ -1,9 +1,8 @@
 ---
 title: 'Love and Light!'
 author: 'Nina Gernow'
-layout: post
 categories:
-  - mindful
+  - blog
 tags:
   - love
   - light
