@@ -1,5 +1,5 @@
 ---
-title: "Nina Gernow personal webpage"
+title: "Nina Gernow"
 permalink: /
 author_profile: false
 ---
