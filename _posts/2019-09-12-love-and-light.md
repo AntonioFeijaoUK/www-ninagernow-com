@@ -1,6 +1,7 @@
 ---
 title: 'Love and Light!'
 author: 'Nina Gernow'
+author_profile: true
 categories:
   - blog
 tags:
