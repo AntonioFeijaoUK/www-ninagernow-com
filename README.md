@@ -4,9 +4,6 @@ permalink: /
 author_profile: false
 ---
 
-
-Welcome to [Nina Gernow](https://www.ninagernow.com) 
-
 ![Nina Gernow](images/nina-gernow-photo-small01.jpg)
 
 
@@ -17,3 +14,11 @@ Welcome to [Nina Gernow](https://www.ninagernow.com)
 The dark is the denial of the light and we are often fearful of our light than of our darkness (shadows). In meditation is a place where no conflict resides. Meditation is the space of silence, it opens the sense of connectedness with one self and where everything is enough. In a space of silence, I feel heard by me listening which feels empowering.
 
 The meditation is like an open window where the consciousness takes form. It is the residenc of the soul and we anchor in the light & love we truly are.
+
+## Womens circle - A way of growing together
+
+Wou....xxx
+
+## Shadow work - A way..xxx
+
+vf...xxx
