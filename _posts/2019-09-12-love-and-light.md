@@ -34,7 +34,7 @@ It is more about recilience and our ability to raise in set-backs and unpredicab
 
 ## 1: Being connected to your self and your deepest desires for your life ignites your power
 
----
+
 ##2: Being connected to a higher power, the Universe, the source, God - that is innerconnected to you##
 
 
