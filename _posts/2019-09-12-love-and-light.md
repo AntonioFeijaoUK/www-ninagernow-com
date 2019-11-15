@@ -18,7 +18,7 @@ And isn't what we are seeking true life's journey?
 
 In whatever area you seeek transformation - in the area of self-love, health, romantic love, carriere, wealth and partnership - it all comes back to where you are centered and where you gain power from. 
 
-We are all a being of love & light and it took bravery to come back to the earth in the fysiocal life and expand our soul's growth into being a higher expressing of love & light. Your soul's purpose is for you to see, feel, know and express the love you are.
+We are all a being of love & light and it took bravery to come back to the earth in fysiocal form and expand our soul's growth into a higher expressing of love & light. Your soul's purpose is for you to see, feel, know and express the love you are.
 
 ## 3 ways of connections to your love & power##
 
