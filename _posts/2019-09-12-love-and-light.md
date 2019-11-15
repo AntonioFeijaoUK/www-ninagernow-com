@@ -20,7 +20,7 @@ In whatever area you seeek transformation - in the area of self-love, health, ro
 
 We all are a being of love & light and it took bravery to come back to the earth in fysiocal form to expand our soul's growth into a higher expressing of love & light. Your soul's purpose is for you to see, feel, know and express the love you are.
 
-## 3 ways of connections to your love & power##
+## 3 ways of connections to your love & power
 
 Everything happens for a reason, says Matt Kahn and everything is here to serve you in the highest way.
 That can sometimes challenge in situations of failure and feeling stuck!
@@ -32,11 +32,11 @@ It is not about being perfect or manage life from the safe and  predicable way. 
 
 It is more about recilience and our ability to raise in set-backs and unpredicable situations. Whatever the case, the importance is to feel the connections in three ways in life.
 
-## 1: Being connected to your self and your deepest desires for your life ignites your power##
+## 1: Being connected to your self and your deepest desires for your life ignites your power
 
-##2: Being connected to a higher power, the Universe, the source, God - that is innerconnected to you##
+##2: Being connected to a higher power, the Universe, the source, God - that is innerconnected to you
 
-## 3: Being connected to the field of relatedness with others##
+## 3: Being connected to the field of relatedness with others
 
 
 
