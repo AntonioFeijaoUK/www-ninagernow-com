@@ -6,7 +6,6 @@ author_profile: false
 
 ![Nina Gernow](images/nina-gernow-photo-small01.jpg)
 
-
 ---
 
 ## Meditation - A way into the light
@@ -22,3 +21,12 @@ Wou....xxx
 ## Shadow work - A way..xxx
 
 vf...xxx
+
+
+<ul>
+  {% for post in site.posts %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a>
+    </li>
+  {% endfor %}
+</ul>
