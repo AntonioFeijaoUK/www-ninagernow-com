@@ -1,9 +1,10 @@
 ---
-title: "Nina Gernow - Spritual empowerment coach and healer"
+title: "Home"
 permalink: /
 author_profile: false
 ---
 
+Nina Gernow, Spritual empowerment coach and healer
 ![Nina Gernow](images/nina-gernow-photo-small01.jpg)
 
 ---
@@ -32,3 +33,5 @@ vf...xxx
     </li>
   {% endfor %}
 </ul>
+
+---
