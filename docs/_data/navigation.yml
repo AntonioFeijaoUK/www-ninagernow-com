@@ -1,5 +1,15 @@
 main:
   - title: "Home"
     url: /
+  - title: "Soul-Helpers"
+    url: /sould-helpers/
+  - title: "Meditation"
+    url: /meditation/
+  - title: "Feminine Guidance"
+    url: /feminine-guidance/
+  - title: "Shadow-Work"
+    url: /shadow-work/
+  - title: "Kinesiology"
+    url: /kinesiology/    
   - title: "About"
     url: /about/
