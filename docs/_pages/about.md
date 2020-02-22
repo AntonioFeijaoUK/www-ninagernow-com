@@ -1,9 +1,11 @@
 ---
 permalink: /about/
-title: "About"
+title: "About Nina"
 ---
 
-Like to recoqnize oneness
+Nina Gernow, like to recoqnize oneness
+
+![Nina Gernow](/assets/images/nina-gernow-photo-small01.jpg) 
 
 About Nina Gernow
 
