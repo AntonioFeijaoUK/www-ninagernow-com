@@ -1,6 +1,8 @@
 ---
 title: "Shadow work"
-permanentlink: "/shadow-work"
+permalink: "/shadow-work"
 ---
+
+
 
 This is shadow work page.
