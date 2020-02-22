@@ -1,6 +1,6 @@
 ---
 title: "Shadow work"
-permalink: "/shadow-work"
+permalink: /shadow-work/
 ---
 
 
