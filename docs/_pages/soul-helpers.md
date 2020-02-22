@@ -1,7 +1,7 @@
 ---
 title: "Soul-Helpers"
-permalink: /sould-helpers/
+permalink: /soul-helpers/
 author_profile: true
 ---
 
-sould-helpers page...
+soul-helpers page...
