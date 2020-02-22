@@ -1,15 +1,15 @@
 ---
-title: "Nina Home page"
+title: "Nina Soul Acceleration"
 permalink: /
 author_profile: false
 
-tagline: "Nina"
+tagline: "The person I am seeking is also seeking me."
 
 header:
   overlay_image: "/assets/images/photo-balance101.jpeg"
   overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
-  image_description: "Nina image description"
-  caption: "Photo credits [@martinsanchez](https://unsplash.com/@martinsanchez)."
+  image_description: "Nina Soul Acceleration, The person I am seeking is also seeking me."
+  caption: "Photo by [@martinsanchez](https://unsplash.com/@martinsanchez)"
   actions:
     - label: "Nina Gernow"
       url: "https://www.NinaGernow.com"
@@ -32,18 +32,3 @@ The meditation is like an open window where the consciousness takes form. It is 
 Wou....xxx
 
 ## Shadow work - A way..xxx
-
-vf...xxx
-
-## Nina blog posts
-
-<ul>
-  {% for post in site.posts %}
-    <li>
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      {{ post.excerpt }}
-    </li>
-  {% endfor %}
-</ul>
-
----
