@@ -15,11 +15,7 @@ header:
       url: "https://www.NinaGernow.com"
 ---
 
-
-Nina Gernow, Spritual empowerment coach and healer
-![Nina Gernow](images/nina-gernow-photo-small01.jpg)
-
----
+## Nina Gernow Spritual empowerment coach.
 
 ## Meditation - A way into the light
   
