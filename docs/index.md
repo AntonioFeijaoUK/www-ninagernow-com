@@ -3,19 +3,19 @@ title: "Nina Soul Acceleration"
 permalink: /
 author_profile: false
 
-tagline: "The person I am seeking is also seeking me."
+tagline: "The person I am seeking is also seeking me"
 
 header:
   overlay_image: "/assets/images/photo-balance101.jpeg"
   overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
-  image_description: "Nina Soul Acceleration, The person I am seeking is also seeking me."
+  image_description: "Nina Soul Acceleration, The person I am seeking is also seeking me"
   caption: "Photo by [@martinsanchez](https://unsplash.com/@martinsanchez)"
   actions:
     - label: "Nina Gernow"
       url: "https://www.NinaGernow.com"
 ---
 
-## Nina Gernow Spritual empowerment coach.
+## Nina Gernow Spritual empowerment coach
 
 ## Meditation - A way into the light
   
