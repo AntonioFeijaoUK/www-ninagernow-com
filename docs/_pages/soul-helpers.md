@@ -1,7 +1,7 @@
 ---
-title: "Soul-Helpers"
+title: "Soul Helpers"
 permalink: /soul-helpers/
 author_profile: true
 ---
 
-soul-helpers page...
+Soul-helpers page...
