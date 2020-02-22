@@ -4,6 +4,7 @@ permalink: /
 author_profile: false
 
 tagline: "Nina"
+
 header:
   overlay_image: "/assets/images/photo-balance101.jpeg"
   overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
@@ -14,8 +15,6 @@ header:
       url: "https://www.NinaGernow.com"
 ---
 
-
----
 
 Nina Gernow, Spritual empowerment coach and healer
 ![Nina Gernow](images/nina-gernow-photo-small01.jpg)
