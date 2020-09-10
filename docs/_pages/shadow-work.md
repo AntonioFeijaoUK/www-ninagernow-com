@@ -51,4 +51,3 @@ Vid at du er dit sjælfulde selv i en krop på den fysiske jord, og at din sjæl
 Lethed og livsglæde mærkes når du er forbundet med Universets energi. Her er det umuligt at føle noget i dig må afvises, her falder alt det gode i og for dig på plads, som det mest naturlige valg du tager i livet. 
 Det er her du ved, at du er set, du er støttet og elsket af Gud, Universets skaberkraft. Her er den ultimative frihed.
 
-This is shadow work page.
