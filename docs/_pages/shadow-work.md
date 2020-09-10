@@ -4,9 +4,6 @@ permalink: /shadow-work/
 ---
 
 
-Shadows
-
-
 **The world we knew as children is still buried within our minds. Our childlike self is the deepest level of our being. it is who we really are, and what is real doesn’t go away.**
 - Marianne Williamson 
 
