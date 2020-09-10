@@ -5,10 +5,10 @@ author_profile: true
 ---
 
 **What you desire, desire you**
-Matt Kahn (Live work-shop, London, May 2019)
+> Matt Kahn (Live work-shop, London, May 2019)
 
 **There is One infinite power in the Universe, and this power is right where I am. I am a Divine, magnificent expression of Life. And so it is.** 
-Louise Hay
+> Louise Hay
 
 Vi er sjæl i en fysisk krop i en fysisk verden. Vor sjæls formål er, at minde os om, at sådan er det. 
 Vejen ind til vor sjæl, vort sande og højere selv går gennem dyb kontakt med os selv og vore følelser. Følelserne er vejen ind til forbundethed med vor sjæl - og spirituelle hjælpere.  Vore ønsker er nært forbundet med vor sjæls mission for livet, og de ønsket er forbundet med vore følelser og intuition,.  som viser vor (sjæls) vej i livet, som en indre GPS.
