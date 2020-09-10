@@ -3,7 +3,6 @@ title: "Meditation"
 permalink: /meditation/
 ---
 
-Meditation
 
 **Meditation er at prioritere dig selv. Meditation er fundamentet i at arbejde spirituelt, fordi det er den frekvens, du skal udvikle for at komme i kontakt med de intuitive sider af dig selv.**
 - Rikke Hertz (forfatter ‘Spirituel’ 2018)
