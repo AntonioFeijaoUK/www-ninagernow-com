@@ -21,7 +21,7 @@ About Nina Gernow
 
 ---
 
-Hello my friends
+Being who you are is exactly what the world has been waiting for. Everything happens through you. Your job is to direct the light shining through you by intendly focusing it, where goodness needs to grow. Just by excisting, you help the world exspand. When you know the value of your being, it is at that point every moment of your doing will be inspired and impactful.
 
 
 
