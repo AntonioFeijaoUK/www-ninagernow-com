@@ -23,8 +23,9 @@ Listening is the way I move in the world.I  give from a pure place. I choose to 
 
 Når jeg ikke siger noget, så giver jeg ved at lytte til andre - forskellen bliver ikke intimiderende men snarere unik.
 
-Meditationen kan også danne basis for den tilstand, der er god at befinde sig i, når vi ønsker kontakt med og at kommunikere med vore spirituelle hjælpere og/eller vore skyggesider. 
+Meditationen kan også danne basis for den tilstand, der er god at befinde sig i, når vi ønsker kontakt med og at kommunikere med vore spirituelle hjælpere og/eller vore skyggesider. I meditationen er rum for, at lade alt være som det er, og komme i kontakt med at vor bevidsthed er selve rummet, hvori alt opstår 
 
-Meditation er at lade alt være som det er. Bevidstheden er som solen. I meditationen vil bevidsthedens bringe lys på det, du observerer, ligesom solens lys giver liv til det, som , på det skinner på.
+Bevidstheden er som solen. Ligesom solen skinner på blomsterne, og giver dem liv, så skinner din bevidsthed på det, der blomstrer op i og om dig. 
+
 
 
