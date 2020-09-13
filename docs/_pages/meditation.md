@@ -27,5 +27,19 @@ Meditationen kan også danne basis for den tilstand, der er god at befinde sig i
 
 Bevidstheden er som solen. Ligesom solen skinner på blomsterne, og giver dem liv, så skinner din bevidsthed på det, der blomstrer op i og om dig. 
 
+I meditationen er det også muligt at med fokus og intention at skabe balane i egne chakraer. Blot ved at trække vejret ind i de forskellige chakraer i meditationen vil de afslappes og harminiseres. Vor krop har en unik evne til at heale og afbalancere dit indre.
+
+Et stabilt rodchakra øger overflod og følelsen af, at høre til. Det grounder dig i nu'et og healer frygt og overlevelsesmønstre.
+Et sundt sacral chakra øger evnen til at skabe, kreativitet, sexuel energy og øger følelsesmæssig intelligens. Det healer skyldfølelser.
+Et stærkt solar plexus øger din personlige power og hjælper evnen til at sætte sunde grænser for dig selv. Det healer følelsen afskam og af vrede.
+Hjertechakra'et handler om selv-aktualisering, - udvikling. Her er følelsen af ubetinget kærlighed, og hjælper med at kunne forbinde dig med andre, give og modtage i relationer. Det healer følelsen af ensomhed og forladthed, ligesom det healer sorg og at være svigtet i kærlighed.
+Halschakra er her hvor udtryk af dig selv, din sandhed og din vilje ligger. Det healer traumer fra hvor, du ikke kunne/ville udtrykke din sandhed, og hvad der autentisk var dig. Du bliver mere powerfuld, når du er i stand til at udtrykke dit autentiske selv ud til verden.
+Det tredje øje chakra handler om din visdom, forståelse, indsigt og intuition. her ligger nøglen til dine psykiske evner, og det healer stress og tendens til at være fanget i et loop af bekymringer og tanker.
+Et sundt kronechakra forbinder dig med den guddommelige energy og med følelsen, sandheden af, at du er et med alt og alle. Det healer følelsen af isolation og tristhed.
+Det 8 chakra - din sjæls chakra - ligger ca 30 cm over dit hoved. Det relaterer sig til Guddommelig visdom og bevidstheden. Her er din sjæls aftryk af, som husker hvad du og din sjæl kom her for, at blive bevidst om hvad dit formål i livet er.
+
+Det er essentielt at harmonisere vore chakraer, heale det, der ikke tjener os. Kroppen vil vibrere i et højere niveau, og det hjælper os med at forbinde os med 5D energien. Du vil blive fri af frygt,uro, og i stedet have den indre fred, der ligger til grund for al velvære og glæde.
+
+
 
 
