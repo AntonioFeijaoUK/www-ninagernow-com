@@ -1,7 +1,7 @@
 ---
-title: "Feminine Guidance"
-permalink: /feminine-guidance/
+title: "Energy Guidance"
+permalink: /Energy-guidance/
 ---
 
-Feminine Guidance page.
+Energy Guidance page.
 
