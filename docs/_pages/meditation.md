@@ -27,7 +27,11 @@ Meditationen kan også danne basis for den tilstand, der er god at befinde sig i
 
 Bevidstheden er som solen. Ligesom solen skinner på blomsterne, og giver dem liv, så skinner din bevidsthed på det, der blomstrer op i og om dig. 
 
-I meditationen er det også muligt at med fokus og intention at skabe balane i egne chakraer. Blot ved at trække vejret ind i de forskellige chakraer i meditationen vil de afslappes og harminiseres. Vor krop har en unik evne til at heale og afbalancere dit indre.
+I meditationen er det også muligt at med fokus og intention at skabe balane i egne chakraer. Blot ved at trække vejret ind i de forskellige chakraer i meditationen vil de afslappes og harminiseres. Vor krop har en unik evne til at heale og afbalancere sig fra det indre og forbundet med bevidsthed, Universets og jordens uendelige ressourcer.
+
+As an infinite being you have access to unlimited ressources to heal and balance out, what needs to balance and return to infinite harmony.
+In the following each chakra is described in a simple way, and how they affects what the mental and emotional body. It also affects the fysical body in various ways, but overall it affects your health and well being in your cells.
+In meditation you can put your focus intendly on each chakra with your inhale and exhale which then allow the chakra to balance. 
 
 Et stabilt rodchakra øger overflod og følelsen af, at høre til. Det grounder dig i nu'et og healer frygt og overlevelsesmønstre.
 
