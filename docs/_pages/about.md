@@ -11,7 +11,7 @@ About Nina Gernow
 
 ## My Journey**
 
-- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be.
+- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be. All the hours in God stillness lead me to connect with Spirit guides, that now support me in expression my true self. It is my mission to support others to connect with their Spirit guides, release and clear out programming and live a life from the Heart.
 
 Following communities have had a huge impact on my life journey - going from living a ordinary life to living an extraordinary life. 
 
