@@ -6,9 +6,11 @@ permalink: /Energy-guidance/
 Energy Guidance page.
 
 **A relationship is more of an assignment than a choice. We can walk away from the assignment, but we can not walk away from the lessons it presents. We stay with a relationship until a lesson is learned, or we simply learn it another way.**
+ 
  -Marianne Williamson
 
 **Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
+ 
  -Don Miguel Ruiz 
 
 
