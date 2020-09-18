@@ -11,7 +11,9 @@ About Nina Gernow
 
 ## My Journey**
 
-- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be. All the hours in God stillness lead me to connect with Spirit guides, that now support me in expression my true self. It is my mission to support others to connect with their Spirit guides, release and clear out programming and live a life from the Heart.
+- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be. All the hours in God stillness lead me to connect with Spirit guides, that now support me in expression my true self. It is my mission to support others to connect with their Spirit guides, release and clear out programming and live a life from the Heart. 
+
+Besides that I have been working with children and their families for nearly 3 decades.
 
 Following communities have had a huge impact on my life journey - going from living a ordinary life to living an extraordinary life. 
 
@@ -52,7 +54,7 @@ Following communities have had a huge impact on my life journey - going from liv
 
 ## Contact**
 
- - If you are interested in any form of healing and coaching from me. 
+ - If you are interested in any form of healing and coaching from me. Please contact me.
 * Email: ninagernow@gmail.com
 * Mobil: +45 28 68 70 44
 * Home: Højlandsvænget 5, 8660 Skanderborg, Denmark
