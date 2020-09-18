@@ -43,9 +43,10 @@ Following communities have had a huge impact on my life journey - going from liv
 
  -  Rikka Zimmerman
 
-Another spiritual leader who impacted my abilities to live from my tru self is:
 
-**Matt Kahn**
+**Awakening Eternal Joy** **Secrets of Emotional Freedom** **Project Resolution**
+
+ - Matt Kahn
 
 ## Contact**
 
