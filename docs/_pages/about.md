@@ -44,7 +44,7 @@ Following communities have had a huge impact on my life journey - going from liv
  -  Rikka Zimmerman
 
 
-**Awakening Eternal Joy** **Secrets of Emotional Freedom** **Project Resolution**
+**Awakening Eternal Joy**, **Secrets of Emotional Freedom**, **Project Resolution**
 
  - Matt Kahn
 
@@ -53,7 +53,7 @@ Following communities have had a huge impact on my life journey - going from liv
  - If you are interested in any form of healing and coaching from me. 
 * Email: ninagernow@gmail.com
 * Mobil: +45 28 68 70 44
-* Adress: Højlandsvænget 5, 8660 Skanderborg, Denmark
+* Home: Højlandsvænget 5, 8660 Skanderborg, Denmark
 
 
 ---
