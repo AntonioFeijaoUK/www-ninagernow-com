@@ -5,6 +5,13 @@ permalink: /Energy-guidance/
 
 Energy Guidance page.
 
+**A relationship is more of an assignment than a choice. We can walk away from the assignment, but we can not walk away from the lessons it presents. We stay with a relationship until a lesson is learned, or we simply learn it another way.**
+ -Marianne Williamson
+
+**Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
+ -Don Miguel Ruiz 
+
+
 Everything is made of energy and your are connectet to the Universe, the energy field through your consciousness. Stepping into the higher realm of consciousness leads to a miraculous transformation. Conciousness do not need healing, you can instantly tap in the higher realm of energy, which shift your energy to a much higher level, that you  actually can feel in a blink of an eye. Your body and your mood feels lighter, everything feels possible.
 
 That is exactly the right place to live your life from. It all starts with awareness and choosing selflove.
