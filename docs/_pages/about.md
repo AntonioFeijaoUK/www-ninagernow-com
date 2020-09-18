@@ -9,15 +9,51 @@ Nina Gernow, like to recoqnize oneness
 
 About Nina Gernow
 
-## This is header 2
+## My Journey**
 
-- This is one line
+- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be.
 
-## This is header 3
+Following communities have had a huge impact on my life journey - going from living a ordinary life to living an extraordinary life. 
 
+**Integrative training proffessional program. Future Focused Leadership Program.**
 
-* Topic 1
-* Topic 2
+ - (Debbie Ford Institute, USA)
+
+**Living on the Edge og Evolution. The Awakened life and The practice of Direct Awakening**
+
+ -  Craig Hamilton. Evolving wisdom.
+
+**The Feminine Power**
+
+ -  Claire Zammit and Katherine Woodward Thomas. Evolving wisdom.
+ 
+ **The Influencers Masterclass**
+ 
+  -  Claire Zammit and Jean Houston.
+
+**Living from Your Soul**
+
+ -  Neale Donald Walsch.
+
+**Soul Mentoring and Spiritual Development**
+
+ -  Alicia Power
+
+**The six Priciples of True Succes**
+
+ -  Rikka Zimmerman
+
+Another spiritual leader who impacted my abilities to live from my tru self is:
+
+**Matt Kahn**
+
+## Contact**
+
+ - If you are interested in any form of healing and coaching from me. 
+* Email: ninagernow@gmail.com
+* Mobil: +45 28 68 70 44
+* Adress: Højlandsvænget 5, 8660 Skanderborg, Denmark
+
 
 ---
 
