@@ -44,7 +44,9 @@ Following communities have had a huge impact on my life journey - going from liv
  -  Rikka Zimmerman
 
 
-**Awakening Eternal Joy**, **Secrets of Emotional Freedom**, **Project Resolution**
+**Awakening Eternal Joy**
+**Secrets of Emotional Freedom**
+**Project Resolution**
 
  - Matt Kahn
 
