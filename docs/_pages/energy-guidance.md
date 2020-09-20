@@ -1,6 +1,6 @@
 ---
 title: "Energy Guidance"
-permalink: /Energy-guidance/
+permalink: /energy-guidance/
 ---
 
 Energy Guidance page.
