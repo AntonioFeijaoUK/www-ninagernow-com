@@ -18,11 +18,15 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title: Nina Gernow
+# Site Settings
+locale                   : "en-GB"
+title                    : "Nina Gernow Spritual empowerment coach"
+title_separator          : "-"
+subtitle                 : "Nina Gernow Soul Acceleration"
 
-email: nina.gernow@gmail.com
+email                    : nina.gernow@gmail.com
 
-description: >- # this means to ignore newlines until "baseurl:"
+description              : >- # this means to ignore newlines until "baseurl:"
   Love and light, peace, mind, awareness, happiness, you have it all!
 
 twitter_username: 
@@ -67,7 +71,17 @@ plugins:
   - jekyll-feed
   - jemoji
   - jekyll-include-cache
+  
+# mimic GitHub Pages with --safe
+whitelist:
+  - jekyll-paginate
+  - jekyll-sitemap
+  - jekyll-gist
+  - jekyll-feed
+  - jemoji
+  - jekyll-include-cache
 
+# Site Author
 author:
   name   : "Nina Gernow"
   avatar : "/assets/images/nina-gernow-photo-small01.jpg"
@@ -77,6 +91,7 @@ author:
       icon: "fas fa-fw fa-link"
       url: "https://www.ninagernow.com"
 
+# Site Footer
 footer:
   links:
     - label: "Nina Gernow"
@@ -113,8 +128,9 @@ tag_archive:
   
 # Analytics
 analytics:
-  provider               : "google" # false (default), "google", "google-universal", "google-gtag", "custom"
+  provider               : "google-universal" # false (default), "google", "google-universal", "google-gtag", "custom"
   google:
     tracking_id          : "UA-178403259-1"
-    anonymize_ip         : "false" # true, false (default)
+    anonymize_ip         : "true" # true, false (default)
 
+encoding: "utf-8"
