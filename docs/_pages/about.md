@@ -19,7 +19,7 @@ Following communities have had a huge impact on my life journey - going from liv
 
 **The Ford Institute for Transformational Training. Future Focused Leadership Program.**
 
- - (Debbie Ford Institute, USA)
+ - (Debbie Ford, USA)
 
 **Living on the Edge og Evolution.** **The Awakened life and The practice of Direct Awakening**
 
