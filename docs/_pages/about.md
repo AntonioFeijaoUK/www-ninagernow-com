@@ -23,7 +23,7 @@ Following communities have had a huge impact on my life journey - going from liv
 
 **Living on the Edge og Evolution.** **The Awakened life and The practice of Direct Awakening**
 
- -  Craig Hamilton. Integrale Enlightenment.
+ -  Craig Hamilton. Integral Enlightenment.
 
 **The Feminine Power**
 
@@ -51,6 +51,10 @@ Following communities have had a huge impact on my life journey - going from liv
 **Project Resolution**
 
  - Matt Kahn
+ 
+ Other meditation- and spiritual leaders who have impacted me on my journey to freedom and finding my lifepurpose:
+ 
+ **Deepak Chopra. Michael Bernard Beckwith. James van Praagh. Panache Desai. Preben Kok.**
 
 ## Contact**
 
