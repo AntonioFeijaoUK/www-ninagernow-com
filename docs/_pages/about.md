@@ -17,13 +17,13 @@ Besides that I have been working with children and their families for nearly 3 d
 
 Following communities have had a huge impact on my life journey - going from living a ordinary life to living an extraordinary life. 
 
-**Integrative training proffessional program. Future Focused Leadership Program.**
+**The Ford Institute for Transformational Training. Future Focused Leadership Program.**
 
  - (Debbie Ford Institute, USA)
 
-**Living on the Edge og Evolution. The Awakened life and The practice of Direct Awakening**
+**Living on the Edge og Evolution.** **The Awakened life and The practice of Direct Awakening**
 
- -  Craig Hamilton. Evolving wisdom.
+ -  Craig Hamilton. Integrale Enlightenment.
 
 **The Feminine Power**
 
