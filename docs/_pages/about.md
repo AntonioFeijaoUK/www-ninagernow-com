@@ -9,7 +9,7 @@ Nina Gernow, like to recoqnize oneness
 
 About Nina Gernow
 
-## My Journey**
+## My Journey
 
 - After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be. All the hours in God stillness lead me to connect with Spirit guides, that now support me in expression my true self. It is my mission to support others to connect with their Spirit guides, release and clear out programming and live a life from the Heart. 
 
@@ -56,22 +56,16 @@ Following communities have had a huge impact on my life journey - going from liv
  
  **Deepak Chopra. Michael Bernard Beckwith. James van Praagh. Panache Desai. Preben Kok.**
 
-## Contact**
+## Contact
 
  - If you are interested in any form of healing and coaching from me. Please contact me.
 * Email: ninagernow@gmail.com
-* Mobil: +45 28 68 70 44
+* Mobile: +45 28 68 70 44
 * Home: Højlandsvænget 5, 8660 Skanderborg, Denmark
 
 
 ---
 
 Being who you are is exactly what the world has been waiting for. Everything happens through you. Your job is to direct the light shining through you by intendly focusing it, where goodness needs to grow. Just by excisting, you help the world exspand. When you know the value of your being, it is at that point every moment of your doing will be inspired and impactful.
-
-
-
-
-
-
 
 
