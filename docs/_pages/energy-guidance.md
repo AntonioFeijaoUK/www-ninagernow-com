@@ -31,7 +31,7 @@ You are made of energy, your energy body surrounds your fysical body which allow
 
 When your energy body is balanced and the energy flows, it allows stuck emotions to go, which allow more balance in the fysical body. When you clear mental and emotional pain it clears your energetic part. Healing in one part affects healing in the others, which then clear the way for you to return to the infinite being you are. 
 
-**Et forhold er mere en opgave end et valg. Vi kan gå væk fra opgaven, men vi kan ikke gå væk fra de lektioner, den præsenterer. Vi forbliver i et forhold, indtil en lektion er lært, eller vi lærer det bare en anden måde. **
+**Et forhold er mere en opgave end et valg. Vi kan gå væk fra opgaven, men vi kan ikke gå væk fra de lektioner, den præsenterer. Vi forbliver i et forhold, indtil en lektion er lært, eller vi lærer det bare en anden måde.**
 
  - Marianne Williamson
 
