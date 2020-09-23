@@ -93,7 +93,7 @@ It is essential to harmonize our chakras, heal what does not serve us. The body 
 
 
 
-Meditation er stilhed. Stilhed er et åbent rum, hvorfra mit bevidste indre tager form. I meditationens rum bliver du gradvist forløst fra din talende tankestrøm og identifikationen med tankerne. I meditationen kan vi sidde i stilhed og observere vore tanker, lade dem gå , flyde, eller svæve bort fra vort fokus. 
+Meditation er stilhed. Stilhed er et åbent rum, hvorfra mit bevidste indre tager form. I meditationens rum bliver du gradvist forløst fra din talende tankestrøm og identifikationen med tankerne. I meditationen kan vi sidde i stilhed og observere vore tanker, lade dem gå, flyde, eller svæve bort fra vort fokus. 
 
 Der er power i at vide, at vi ikke er vore tanker.  Vi har power over vore tanker, og vi kan diktere vore tanker ind i mere positive og opløftende tanker, som vil åbne op for mere tilfredshed og velbehag. Endvidere kan vi diktere vore tanker væk fra en negativ spiral af tunge og triste tanker, når de er ved at overtage vor velvære.
 
