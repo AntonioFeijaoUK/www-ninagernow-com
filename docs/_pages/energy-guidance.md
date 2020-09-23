@@ -34,7 +34,7 @@ Balance your body and mind is nessesary for the energy to flow through you. Let 
 
 It is not a selfish thing to put yourself first, it is ideal. Then you have more to give to others. Taking care of your health, your mind and soul makes you more kind, because you are an expression of kindness towards yourself. Your balance reflects the love you give to your self.
 
-You are made of energy, your energy body surrounds your fysical body which allow the energy to flow. Remember the fysical body is created from the energy arround body. Beyond that we have the mental and emotinal body. Emotional traumas creates limiting beliefs. Beliefs creates constrictions (shadows). Beliefs and emotional pain creates blockages in the enrgy body, which then creates blockages in your fysical body, what makes it difficult for the energy to flow.
+You are made of energy, your energy body surrounds your fysical body which allow the energy to flow. Remember the fysical body is created from the energy arround body. Beyond that we have the mental and emotinal body. Emotional traumas creates limiting beliefs. Beliefs creates constrictions (shadows). Beliefs and emotional pain creates blockages in the energy body, which then creates blockages in your fysical body, what makes it difficult for the energy to flow.
 
 When your energy body is balanced and the energy flows, it allows stuck emotions to go, which allow more balance in the fysical body. When you clear mental and emotional pain it clears your energetic part. Healing in one part affects healing in the others, which then clear the way for you to return to the infinite being you are. 
 
@@ -67,9 +67,9 @@ At balancere din krop og dit sind er nødvendigt, for at energien kan strømme g
 
 Det er ikke en egoistisk ting at sætte dig selv først, det er ideelt. Så har du mere at give til andre. At tage sig af dit helbred, dit sind og din sjæl gør dig mere venlig, fordi du er et udtryk for venlighed over for dig selv. Din balance afspejler den kærlighed, du giver dig selv.
 
-Du er lavet af energi, din energikrop omgiver din fysiske krop, som tillader energien at strømme. Husk, at den fysiske krop er skabt af energien omkring kroppen. Derudover har vi den mentale og følelsesmæssige krop. Følelsesmæssige traumer skaber begrænsende overbevisninger. Tro skaber indsnævring (skygger). Tro og følelsesmæssig smerte skaber blokeringer i den uhyggelige krop, som derefter skaber blokeringer i din fysiske krop, hvad der gør det vanskeligt for energien at strømme.
+Du er lavet af energi, din energikrop omgiver din fysiske krop, som tillader energien at strømme. Husk, at den fysiske krop er skabt af energien omkring kroppen. Derudover har vi den mentale og følelsesmæssige krop. Følelsesmæssige traumer skaber begrænsende overbevisninger. Tro skaber indsnævring (skygger). Usunde overbevisninger og følelsesmæssig smerte skaber blokeringer i din energikrop, som igen skaber blokeringer i din fysiske krop, hvad der gør det vanskeligt for energien at strømme.
 
-Når din energikrop er afbalanceret, og energien strømmer, tillader den, at fastholdte følelser forløses, hvilket giver mere balance i den fysiske krop. Når du rydder mental og følelsesmæssig smerte af vejen, højnes din energetiske del. Helbredelse i den ene del påvirker helbredelsen i de andre, som derefter rydder vejen for dig at vende tilbage til det uendelige væsen, du er.
+Når din energikrop er afbalanceret, og energien strømmer, tillader den, at fastholdte følelser forløses, hvilket giver mere balance i den fysiske krop. Når du rydder mental og følelsesmæssig smerte af vejen, højnes din energi. Helbredelse i den ene del påvirker helbredelsen i de andre, som derefter rydder vejen for dig at vende tilbage til det uendelige væsen, du er.
  
  
 
