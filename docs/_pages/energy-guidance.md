@@ -12,6 +12,13 @@ Energy Guidance page.
  **If I love myself, I will express that love in my relationship with others. Being pure in one's energy means that one uses one's energy in the direction of truth and love.**
  
   - Don Miguel Ruiz
+  
+  
+Energy-healing is to put light on the dark, it is to release your inner imbalance in forms of repeating patterns (shadows), and create new programming. 
+  
+Your intuition - Feminine power speaks to you. More easaly when you are relaxed and have inner peace. Your intuition is the signal from your Soul, and it has a plan for you and for your life. It sends you signals from the non-physical world.
+  
+It doessn't speak loudly - like your emotions, all though it is always for your highest good and from your heart.
 
 
 
@@ -31,6 +38,8 @@ You are made of energy, your energy body surrounds your fysical body which allow
 
 When your energy body is balanced and the energy flows, it allows stuck emotions to go, which allow more balance in the fysical body. When you clear mental and emotional pain it clears your energetic part. Healing in one part affects healing in the others, which then clear the way for you to return to the infinite being you are. 
 
+
+
 **Et forhold er mere en opgave end et valg. Vi kan gå væk fra opgaven, men vi kan ikke gå væk fra de lektioner, den præsenterer. Vi forbliver i et forhold, indtil en lektion er lært, eller vi lærer det bare en anden måde.**
 
  - Marianne Williamson
@@ -40,7 +49,13 @@ When your energy body is balanced and the energy flows, it allows stuck emotions
  
  -Don Miguel Ruiz 
  
- Alt er lavet af energi, og du er forbundet til universet, energifeltet gennem din bevidsthed. At træde ind i det højere bevidsthedsområde fører til en mirakuløs transformation. Bevidsthed behøver ikke helbredelse, du kan straks tappe ind, tænde det højere energirige, som derefter skifter din energi til et meget højere niveau. Du kan faktisk mærke det på et øjeblik. Din krop og dit humør føles lettere, alt føles muligt.
+ Energiheling er at sætte lys på mørket, det er at frigøre din indre ubalance i form af gentagne mønstre (skygger) og skabe ny programmering.
+  
+Din intuition - Feminine kraft taler til dig. Nemmere når du er afslappet og har indre fred. Din intuition er signalet fra din sjæl, og den har en plan for dig og for dit liv. Din intuition sender dig signaler fra den ikke-fysiske verden.
+  
+Din intuition taler ikke højt - ligesom dine følelser, skønt intuitionen kommer altid for dit højeste gode og fra dit hjerte.
+ 
+ Alt er lavet af energi, og du er forbundet til universets energi gennem din bevidsthed. At træde ind i det højere bevidsthedsfelt fører til en mirakuløs transformation. Bevidsthed behøver ikke helbredelse, du kan straks træde ind den, mærke en højere energifrekvens, som derefter skifter din energi til et meget højere niveau. Du kan faktisk mærke det på et øjeblik. Din krop og dit humør føles lettere, alt føles muligt.
 
 Det er præcis det rigtige sted at leve dit liv fra. Det hele starter med bevidsthed og valg af egenkærlighed.
 
@@ -54,7 +69,7 @@ Det er ikke en egoistisk ting at sætte dig selv først, det er ideelt. Så har 
 
 Du er lavet af energi, din energikrop omgiver din fysiske krop, som tillader energien at strømme. Husk, at den fysiske krop er skabt af energien omkring kroppen. Derudover har vi den mentale og følelsesmæssige krop. Følelsesmæssige traumer skaber begrænsende overbevisninger. Tro skaber indsnævring (skygger). Tro og følelsesmæssig smerte skaber blokeringer i den uhyggelige krop, som derefter skaber blokeringer i din fysiske krop, hvad der gør det vanskeligt for energien at strømme.
 
-Når din energikrop er afbalanceret, og energien strømmer, tillader den, at fastholdte følelser går, hvilket giver mere balance i den fysiske krop. Når du rydder mental og følelsesmæssig smerte, rydder det din energiske del. Helbredelse i den ene del påvirker helbredelsen i de andre, som derefter rydder vejen for dig at vende tilbage til det uendelige væsen, du er.
+Når din energikrop er afbalanceret, og energien strømmer, tillader den, at fastholdte følelser forløses, hvilket giver mere balance i den fysiske krop. Når du rydder mental og følelsesmæssig smerte af vejen, højnes din energetiske del. Helbredelse i den ene del påvirker helbredelsen i de andre, som derefter rydder vejen for dig at vende tilbage til det uendelige væsen, du er.
  
  
 
