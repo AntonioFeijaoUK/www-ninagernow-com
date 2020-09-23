@@ -45,7 +45,7 @@ Your soul grows clearer, and it is the purpose of your soul that you show and ex
 
  - Matt Kahn
  
- **Der er en uendelig kraft i universet, og denne magt er lige, hvor jeg er. Jeg er et guddommeligt, storslået udtryk for livet. Og sådan er det. **
+ **Der er en uendelig kraft i universet, og denne magt er lige, hvor jeg er. Jeg er et guddommeligt, storslået udtryk for livet. Og sådan er det.**
  
   - Louise Hay
 
