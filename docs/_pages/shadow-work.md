@@ -54,7 +54,7 @@ This is were you know you are seen, you are supported and loved by God, the crea
 
  - Debbie Ford
  
- **Den verden, vi kendte som børn, er stadig begravet i vores sind. Vores barnlige selv er det dybeste niveau af vores væsen. det er hvem vi virkelig er, og hvad der er ægte forsvinder ikke.**
+ **Den verden, vi kendte som børn, er stadig begravet i vores sind. Vores barnlige selv er det dybeste niveau af vores væsen, det er hvem vi virkelig er, og hvad der er ægte forsvinder ikke.**
  
   - Marianne Williamson
  
