@@ -60,8 +60,6 @@ Following communities have had a huge impact on my life journey - going from liv
 
  - If you are interested in any form of healing and coaching from me. Please contact me.
 * Email: ninagernow@gmail.com
-* Mobile: +45 28 68 70 44
-* Home: Højlandsvænget 5, 8660 Skanderborg, Denmark
 
 
 ---
