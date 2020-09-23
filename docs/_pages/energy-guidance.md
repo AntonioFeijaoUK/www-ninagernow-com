@@ -31,6 +31,7 @@ You are made of energy, your energy body surrounds your fysical body which allow
 
 When your energy body is balanced and the energy flows, it allows stuck emotions to go, which allow more balance in the fysical body. When you clear mental and emotional pain it clears your energetic part. Healing in one part affects healing in the others, which then clear the way for you to return to the infinite being you are. 
 
+
 **Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
  
  -Don Miguel Ruiz 
