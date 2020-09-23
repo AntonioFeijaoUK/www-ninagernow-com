@@ -89,14 +89,14 @@ author:
   links:
     - label: "Nina Gernow"
       icon: "fas fa-fw fa-link"
-      url: "https://www.ninagernow.com"
+      url: "https://ninagernow.com"
 
 # Site Footer
 footer:
   links:
     - label: "Nina Gernow"
       icon: "fas fa-fw fa-link"
-      url: "https://twitter.com/"
+      url: "https://ninagernow.com"
 
 defaults:
   # _posts
