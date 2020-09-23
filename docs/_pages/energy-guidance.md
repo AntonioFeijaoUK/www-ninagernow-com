@@ -16,7 +16,7 @@ Energy Guidance page.
   
 Energy-healing is to put light on the dark, it is to release your inner imbalance in forms of repeating patterns (shadows), and create new programming. 
   
-Your intuition - Feminine power speaks to you. More easaly when you are relaxed and have inner peace. Your intuition is the signal from your Soul, and it has a plan for you and for your life. It sends you signals from the non-physical world.
+Your intuition - Feminine power speaks to you more easaly when you are relaxed and have inner peace. Your intuition is the signal from your Soul, and it has a plan for you and for your life. It sends you signals from the non-physical world.
   
 It doessn't speak loudly - like your emotions, all though it is always for your highest good and from your heart.
 
