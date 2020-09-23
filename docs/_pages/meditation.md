@@ -102,7 +102,7 @@ I meditationens stilhed er der en subtil genkendelse af os selv, som ligger væk
 Fordi meditationen opbygger din adgang til noget større udenfor og i dig, vil det automatisk have positiv langvarende indflydelse på, hvordan du agerer i livet. 
 Navnlig i en situation med udfordrende omstændigheder.Vi kan alle blive ramt af noget følelsesmæssigt, som kan få vores system til at reagere prompte og på måder, som vi senere vil fortryde. Når vi bliver emotionelt trigget og re-agerer, kan vi vise forbundethed med den andens smerte, skuffelse og frustration ved at være i en afslappet og observerende væren, herved bliver begge parter trukket ind i fred.
 
-Listening is the way I move in the world.I  give from a pure place. I choose to be peaceful.
+At lytte er den måde, jeg bevæger mig på i verden. Jeg giver fra et rent sted. Jeg vælger at være fredelig.
 
 Når jeg ikke siger noget, så giver jeg ved at lytte til andre - forskellen bliver ikke intimiderende men snarere unik.
 
@@ -112,9 +112,9 @@ Bevidstheden er som solen. Ligesom solen skinner på blomsterne, og giver dem li
 
 I meditationen er det også muligt at med fokus og intention at skabe balane i egne chakraer. Blot ved at trække vejret ind i de forskellige chakraer i meditationen vil de afslappes og harminiseres. Vor krop har en unik evne til at heale og afbalancere sig fra det indre og forbundet med bevidsthed, Universets og jordens uendelige ressourcer.
 
-As an infinite being you have access to unlimited ressources to heal and balance out, what needs to balance and return to infinite harmony.
-In the following each chakra is described in a simple way, and how they affects what the mental and emotional body. It also affects the fysical body in various ways, but overall it affects your health and well being in your cells.
-In meditation you can put your focus intendly on each chakra with your inhale and exhale which then allow the chakra to balance. 
+Som et uendeligt væsen har du adgang til ubegrænsede ressourcer til at helbrede og afbalancere, hvad der skal balancere og vende tilbage til uendelig harmoni.
+I det følgende beskrives hvert chakra på en enkel måde, og hvordan de påvirker den mentale og følelsesmæssige krop. Det påvirker også den fysiske krop på forskellige måder, men generelt påvirker det dit helbred og dit velbefindende i dine celler.
+I meditation kan du fokusere bevidst på hvert chakra med din inhalation og udånding, som derefter tillader chakraet at balancere.
 
 Et stabilt rodchakra øger overflod og følelsen af, at høre til. Det grounder dig i nu'et og healer frygt og overlevelsesmønstre.
 
