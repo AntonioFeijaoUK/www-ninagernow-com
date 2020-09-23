@@ -4,11 +4,94 @@ permalink: /meditation/
 ---
 
 
-**Meditation er at prioritere dig selv. Meditation er fundamentet i at arbejde spirituelt, fordi det er den frekvens, du skal udvikle for at komme i kontakt med de intuitive sider af dig selv.**
-- Rikke Hertz (forfatter ‘Spirituel’ 2018)
 
 **The better I feel about myself, the better I feel about the world I live in.**
 - Matt Kahn
+
+**Meditation is prioritizing yourself. Meditation is the foundation of working spiritually because it is the frequency you need to develop to get in touch with the intuitive sides of yourself.**
+
+Rikke Hertz (author ‘Spiritual’ 2018)
+
+
+
+Meditation is silence. Silence is an open space from which my conscious interior takes shape. In the space of meditation, you are gradually freed from your speaking stream of thought and identification with the thoughts. In meditation, we can sit in silence and observe our thoughts, let them go, float, or soar away from our focus.
+
+
+
+There is power in knowing that we are not our thoughts. We have power over our thoughts, and we can dictate our thoughts into more positive and uplifting thoughts, which will open up for more satisfaction and well-being. Furthermore, we can dictate our thoughts away from a negative spiral of heavy and sad thoughts as they are about to take over our well-being.
+
+
+
+In the silence of meditation there is a subtle recognition of ourselves, which lies away from the logical sense and perception of the self. It is an experience of coming home, and being connected with our soulful authentic self. At the same time, we are connected to the eternal, infinite space of consciousness and energy, which is also part of our own being.
+
+
+
+Because meditation builds your access to something greater outside and inside you, it will automatically have a positive long-term impact on how you act in life. Especially in a situation of challenging circumstances. We can all be affected by something emotional that can cause our system to react promptly and in ways that we will later regret. When we are emotionally triggered and re-act, we can show connectedness to the other's pain, disappointment and frustration by being in a relaxed and observant being, thereby pulling both parties into peace.
+
+
+
+Listening is the way I move in the world.I give from a pure place. I choose to be peaceful.
+
+
+
+When I do not say anything, I give by listening to others - the difference does not become intimidating but rather unique.
+
+Meditation can also form the basis of the state that is good to be in when we want contact with and to communicate with our spiritual helpers and / or our shadowy sides. In meditation, there is room to leave everything as it is, and get in touch with the fact that our consciousness is the space in which everything arises.
+
+
+
+Consciousness is like the sun. Just as the sun shines on the flowers, and gives them life, so your consciousness shines on what blooms up in and around you.
+
+
+
+In meditation, it is also possible to create balance in one's own chakras with focus and intention. Simply by breathing into the various chakras of meditation, they will relax and harmonize. Our body has a unique ability to heal and balance itself from the interior and connected with consciousness, the infinite resources of the Universe and the earth.
+
+
+
+As an infinite being you have access to unlimited resources to heal and balance out, what needs to balance and return to infinite harmony. In the following each chakra is described in a simple way, and how they affect what the mental and emotional body. It also affects the physical body in various ways, but overall it affects your health and well being in your cells. In meditation you can put your focus intentionally on each chakra with your inhale and exhale which then allow the chakra to balance.
+
+
+
+A stable root chakra increases abundance and the feeling of belonging. It grooves you into the now and heals fear and survival patterns.
+
+
+
+A healthy sacral chakra increases the ability to create, creativity, sexual energy and increases emotional intelligence. It heals guilt. A strong solar plexus increases your personal power and helps the ability to set healthy boundaries for yourself. It heals the feeling of shame and anger.
+
+
+
+The heart chakra is about self-actualization, - development. Here is the feeling of unconditional love, and helps to be able to connect with others, give and receive in relationships. It heals the feeling of loneliness and abandonment, just as it heals sorrow and being let down in love.
+
+
+
+Neck chakra is where the expression of yourself, your truth and your will lies. It heals trauma from where you could not / would not express your truth and what was authentic to you. You become more powerful when you are able to express your authentic self to the world.
+
+
+
+The third eye chakra is about your wisdom, understanding, insight and intuition. here lies the key to your mental abilities, and it heals stress and tends to be trapped in a loop of worries and thoughts.
+
+
+
+A healthy crown chakra connects you with the divine energy and with the feeling, the truth that you are one with everything and everyone. It heals the feeling of isolation and sadness.
+
+
+
+The 8 chakras - your soul's chakra - are about 30 cm above your head. It relates to Divine Wisdom and Consciousness. Here is your soul's imprint of remembering what you and your soul came here to become aware of what your purpose in life is.
+
+It is essential to harmonize our chakras, heal what does not serve us. The body will vibrate at a higher level and it helps us connect with the 5D energy. You will be free from fear, unrest, and instead have the inner peace that underlies all well-being and joy.
+
+
+
+**Meditation er at prioritere dig selv. Meditation er fundamentet i at arbejde spirituelt, fordi det er den frekvens, du skal udvikle for at komme i kontakt med de intuitive sider af dig selv.**
+
+- Rikke Hertz (forfatter ‘Spirituel’ 2018)
+
+**Jo bedre jeg har det med mig selv, jo bedre har jeg det med den verden, jeg lever i. **
+
+- Matt Kahn
+
+
+
 
 Meditation er stilhed. Stilhed er et åbent rum, hvorfra mit bevidste indre tager form. I meditationens rum bliver du gradvist forløst fra din talende tankestrøm og identifikationen med tankerne. I meditationen kan vi sidde i stilhed og observere vore tanker, lade dem gå , flyde, eller svæve bort fra vort fokus. 
 
