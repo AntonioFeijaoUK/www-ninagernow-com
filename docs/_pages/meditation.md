@@ -114,6 +114,7 @@ I meditationen er det også muligt at med fokus og intention at skabe balane i e
 
 Som et uendeligt væsen har du adgang til ubegrænsede ressourcer til at helbrede og afbalancere, hvad der skal balancere og vende tilbage til uendelig harmoni.
 I det følgende beskrives hvert chakra på en enkel måde, og hvordan de påvirker den mentale og følelsesmæssige krop. Det påvirker også den fysiske krop på forskellige måder, men generelt påvirker det dit helbred og dit velbefindende i dine celler.
+
 I meditation kan du fokusere bevidst på hvert chakra med din inhalation og udånding, som derefter tillader chakraet at balancere.
 
 Et stabilt rodchakra øger overflod og følelsen af, at høre til. Det grounder dig i nu'et og healer frygt og overlevelsesmønstre.
