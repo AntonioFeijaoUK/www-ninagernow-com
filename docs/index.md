@@ -46,7 +46,7 @@ I love you to get in touch with your feminine power - your intuition, and from h
 
 **For at løse situationen skal du tro på, at alt er healet i dig her og nu. Når din tro vokser stærkere, åbner din dør til guddommelige løsninger.
 Din tillid giver dit sind og krop mulighed for at slappe af, hvilket øger din kreative energi og styrke.
-Giv Gud, englene bekymringer, åndeguider og stol på processen. Tro på dig selv.**
+Giv Gud, englene dine bekymringer og stol på processen. Tro på dig selv.**
 
 Alle kan kommunikere og samarbejde med åndelige væsener ved at skabe og omlægge gammel programmering og opgradere vores Love & Light.
 
