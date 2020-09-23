@@ -34,5 +34,23 @@ When your energy body is balanced and the energy flows, it allows stuck emotions
 **Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
  
  -Don Miguel Ruiz 
+ 
+ Alt er lavet af energi, og du er forbundet til universet, energifeltet gennem din bevidsthed. At træde ind i det højere bevidsthedsområde fører til en mirakuløs transformation. Bevidsthed behøver ikke helbredelse, du kan straks tappe ind, tænde det højere energirige, som derefter skifter din energi til et meget højere niveau. Du kan faktisk mærke det på et øjeblik. Din krop og dit humør føles lettere, alt føles muligt.
+
+Det er præcis det rigtige sted at leve dit liv fra. Det hele starter med bevidsthed og valg af egenkærlighed.
+
+Du er den vigtigste person i dit liv. At passe på dig selv, fylde din kop med selvkærlighed og sørge for, at dine behov er opfyldt, åbner flodporten for at modtage glæde og lykke. Vi er den, der åbner flodporten, en anden kan gøre dette for os. Det er op til os at beslutte, hvornår vi har brug for hvile, og hvornår vi er i strømmen. Det er vores følelser, der er indikatoren.
+
+Nogle gange er det inspiration, du har brug for, så ring din mentor indefra, gør noget, der ikke er bundet til forpligtelser. Træk vejret dybt, og lad liv svæve ind. Ånde ind og ud får dig til at slappe af og er en indikator for din krop og dit psykiske sind, at du er åben for at modtage. Du kan give slip og lade energi komme ind.
+
+At balancere din krop og dit sind er nødvendigt, for at energien kan strømme gennem dig. Lad din krop vide, at det er ok at være og modtage. At modtage din sjæls vejledning fører til inspiration og glæde. Din naturlige værenstilstand er uendelig harmoni, den er naturlig. Balanceret energi, der bevæger sig let mellem indre og ydre livsudtryk, ying og yang, det maskuline og feminine er naturligt. Vi er alle udtryk for begge former for energi, og det er nødvendigt for livets opfyldelse.
+
+Det er ikke en egoistisk ting at sætte dig selv først, det er ideelt. Så har du mere at give til andre. At tage sig af dit helbred, dit sind og din sjæl gør dig mere venlig, fordi du er et udtryk for venlighed over for dig selv. Din balance afspejler den kærlighed, du giver dig selv.
+
+Du er lavet af energi, din energikrop omgiver din fysiske krop, som tillader energien at strømme. Husk, at den fysiske krop er skabt af energien omkring kroppen. Derudover har vi den mentale og følelsesmæssige krop. Følelsesmæssige traumer skaber begrænsende overbevisninger. Tro skaber indsnævring (skygger). Tro og følelsesmæssig smerte skaber blokeringer i den uhyggelige krop, som derefter skaber blokeringer i din fysiske krop, hvad der gør det vanskeligt for energien at strømme.
+
+Når din energikrop er afbalanceret, og energien strømmer, tillader den, at fastholdte følelser går, hvilket giver mere balance i den fysiske krop. Når du rydder mental og følelsesmæssig smerte, rydder det din energiske del. Helbredelse i den ene del påvirker helbredelsen i de andre, som derefter rydder vejen for dig at vende tilbage til det uendelige væsen, du er.
+ 
+ 
 
 
