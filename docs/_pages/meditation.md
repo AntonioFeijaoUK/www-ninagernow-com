@@ -119,7 +119,7 @@ I meditation kan du fokusere bevidst på hvert chakra med din inhalation og udå
 
 Et stabilt rodchakra øger overflod og følelsen af, at høre til. Det grounder dig i nu'et og healer frygt og overlevelsesmønstre.
 
-Et sundt sacral chakra øger evnen til at skabe, kreativitet, sexuel energy og øger følelsesmæssig intelligens. Det healer skyldfølelser.
+Et sundt sacral chakra øger evnen til at skabe, kreativitet, sexuel energi og øger følelsesmæssig intelligens. Det healer skyldfølelser.
 Et stærkt solar plexus øger din personlige power og hjælper evnen til at sætte sunde grænser for dig selv. Det healer følelsen afskam og af vrede.
 
 Hjertechakra'et handler om selv-aktualisering, - udvikling. Her er følelsen af ubetinget kærlighed, og hjælper med at kunne forbinde dig med andre, give og modtage i relationer. Det healer følelsen af ensomhed og forladthed, ligesom det healer sorg og at være svigtet i kærlighed.
