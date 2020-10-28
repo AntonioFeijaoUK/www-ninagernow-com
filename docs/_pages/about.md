@@ -15,7 +15,7 @@ About Nina Gernow
 
 Udover det har jeg arbejdet med børn og deres familier i skole og dagtilbud i næsten 3 årtier.
 
-Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig fra at leve et begrænset liv til et liv i glæde og tillid.
+Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig til at gå fra at leve et begrænset liv til at leve mit liv i glæde og tillid.
 
 **The Ford Institute for Transformational Training. Future Focused Leadership Program.**
 
