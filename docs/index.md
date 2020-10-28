@@ -19,9 +19,9 @@ The dark is the denial of the light and we are often fearful of our light than o
 
 ---
 
-## [Klik her for Dansk version](https://translate.google.com/translate?hl=&sl=en&tl=da&u=https%3A%2F%2Fninagernow.com%2F)
+## [![Danish Version](/assets/images/Denmark-flag-64px.png)Klik her for Dansk version](https://translate.google.com/translate?hl=&sl=en&tl=da&u=https%3A%2F%2Fninagernow.com%2F)
 
-## [Click here for English version](https://translate.google.com/translate?hl=&sl=da&tl=en&u=https%3A%2F%2Fninagernow.com%2F)
+## [![United-Kingdom-Great-Britain-flag](/assets/images/United-Kingdom-Great-Britain-flag-48px.png)Click here for English version](https://translate.google.com/translate?hl=&sl=da&tl=en&u=https%3A%2F%2Fninagernow.com%2F)
 
 ## [Click here for original version](https://ninagernow.com/)
 
