@@ -9,13 +9,13 @@ Nina Gernow, like to recoqnize oneness
 
 About Nina Gernow
 
-## My Journey
+## Min spirituelle rejse
 
-- After more than 10 years of regular meditation, several courses and educations in Denmark and USA, I finally got to be the empowerment coach and intuitive energy healer that I am meant to be. All the hours in God stillness lead me to connect with Spirit guides, that now support me in expression my true self. It is my mission to support others to connect with their Spirit guides, release and clear out programming and live a life from the Heart. 
+- Efter mere en 10 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, er jeg endelig blevet spirituel rådgiver, healer og coach i personlig transformation. Alle mine timer i stilhed ledte mig til kontakten med min sjæl's guider, som idag hjælper mig til at udtrykke mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
 
-Besides that I have been working with children and their families for nearly 3 decades.
+Udover det har jeg arbejdet med børn og deres familier i skole og dagtilbud i næsten 3 årtier.
 
-Following communities have had a huge impact on my life journey - going from living a ordinary life to living an extraordinary life. 
+Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig fra at leve et begrænset liv til et liv i glæde og tillid.
 
 **The Ford Institute for Transformational Training. Future Focused Leadership Program.**
 
@@ -25,7 +25,7 @@ Following communities have had a huge impact on my life journey - going from liv
 
  -  Craig Hamilton. Integral Enlightenment.
 
-**The Feminine Power**
+**The Feminine Power Mastery**
 
  -  Claire Zammit and Katherine Woodward Thomas. Evolving wisdom.
  
@@ -52,13 +52,13 @@ Following communities have had a huge impact on my life journey - going from liv
 
  - Matt Kahn
  
- Other meditation- and spiritual leaders who have impacted me on my journey to freedom and finding my lifepurpose:
+ Andre meditations- og spirituelle ledere, som har haft stor betydning for, at jeg fandt min retning og livsformål:
  
- **Deepak Chopra. Michael Bernard Beckwith. James van Praagh. Panache Desai. Preben Kok.**
+ **Deepak Chopra. Michael Bernard Beckwith. James van Praagh. Panache Desai. Preben Kok. Alberto Villoldo**
 
-## Contact
+## Kontakt
 
- - If you are interested in any form of healing and coaching from me. Please contact me.
+ - Hvis du har interesse i coaching, healing eller hjælp til at komme i dialog med din sjæl's guider, kontaktes jeg på.
 * Email: ninagernow@gmail.com
 
 
