@@ -4,51 +4,6 @@ permalink: /shadow-work/
 ---
 
 
-**The world we knew as children is still buried within our minds. Our childlike self is the deepest level of our being. it is who we really are, and what is real doesn’t go away.**
-- Marianne Williamson 
-
-**Do not fear your emotions, they are your best teachers.**. What you resist - persist.**
-- Debbie Ford
-
-Knowing your emotions is a prerequisite for learning to control them, and to be able to develop your intuition for insight, calm and wisdom. Herein lies the key to resting in oneself - which includes acceptance and knowledge of one's feelings.
-In the event that emotions or parts of yourself are rejected, they will act as self-sabotaging troublemakers.
-
-Do your little troublemakers (shadow pages) stand in the way of your life unfolding, and for you to express your unique qualities and the ‘You’ that is ‘meant to be and become’ in your life.
-
-I think most people can nod in recognition of this. Especially when you have found your way to my website. Those who do not see that the troublemakers are inside us, probably do not know of shadowy sides. Our shadows - troublemakers make noise and we can spend a lot of time and energy (life) on avoiding them. But they are just part of the programming that was created when we were growing up. They are small children (emotions) that must be taken in audience.
-Through adapting to the norms we are born into, we gradually learn from the first moment to live what others see is good for us. It takes decades, in turn, with piles of self-help books, personal development courses, and therapy sessions to unwind from the adjustment to find our way back and home within ourselves.
-
-Most often, we make a ‘point-of-no-return’ of ‘Enough is Enough’ when expectations, influence from society, culture and significant others have led us into hopelessness, frustration, confusion and crises. And that it has taken so long that powerlessness and the doubt about ‘who I am’ and the doubt about ‘where do I fit in’ have taken over. At the same time, the connection to our natural healthy and true self is completely gone or something we only in glimpses or sporadically have contact with, and at least the foundation of well-being and balance is not a stable quantity.
-
-When we doubt ourselves and our worth, we lose our power, so we also easily lose faith in and confidence that we can succeed in life. And suddenly we have created an inner mental prison where life is experienced as limited and the phrase ‘You create your own reality’ seems like a mockery.
-
-This 'failure' and the experience that something has gone completely wrong in life can help us to easily turn blame on ourselves and consequently disgusting feelings of shame and guilt. Or we can turn the anger against parents for childhood fraud, the spouse for the dysfunctional in the relationship, the boss, the colleagues for dissatisfaction at work. The feeling of resistance and reproach does not lead to rest in itself either!
-
-The feeling of love for ourselves can then seem utopian, and make it difficult to embrace and accommodate that we manage to find the way home within ourselves. But our emotions need to be invited into the heat. Not only are they the path to healing; ‘What you feel, is what you heal’. They also hold the key to a gift, and each shadow side holds what I call a ‘transforming gift’ because the gift in the shadow transforms the dark into the light within you. The shadow side is the part of you and the emotions that have been banished to the shadow through your upbringing. But it's your job to invite them in as an essential part of you.
-
-Your shadow pages keep popping up to be redeemed and make room in us. They will act as troublemakers until we finally get the attention directed towards them, and can meet the shadowy sides with acceptance, care and look at them for what they are. They are feelings that we have judged as forbidden to feel, or qualities that we have judged out and that they ‘Do not do’.
-
-It goes without saying that by rejecting parts of ourselves, we do not feel ‘Whole’. Instead, we make a split in ourselves, and that split tortures us and takes an unnecessary amount of energy and, above all, prevents us from living a balanced life. Of course, our relationships will also suffer from the fact that we do not accept and integrate all parts of ourselves. Because we judge others for what we do not accept in ourselves and we easily project our pain onto, others. And we can spend a lot of energy and life blaming our surroundings and the circumstances of our life for being the reason we do not live the life we ​​want to live.
-
-The shadows control and influence the energy field behind our thoughts and habits, therefore they affect invisibly. The shadows bring forth inappropriate thoughts, which promote inappropriate emotions which in turn lead to inappropriate habits which contribute to us being led to a lower level of energy. It feels 'heavy', because the energy is heavy!
-
-The art is to navigate and control our lives in interaction with our soul and in balance with the shadows without them taking over the lead. The art, moreover, is to look at what what we have banished to the shadows must be met with tenderness.
-The following are the most common beliefs that can typically be traced back in relationships with mother, father and significant others in childhood and adolescence.
-
-The feeling of not feeling worthy, good-enough, belonging, having meaning, having confidence in one's own abilities and being able to trust oneself, others and life. A distinct need to have control, to be perfect are other beliefs. And having no or little confidence in being able to master life came from the fact that we were trying to adapt.
-
-When the same feeling is felt sufficiently many times, it becomes a conviction we regard as a truth from which we live our lives. However, it is only survival strategies that helped as little innocent creatures. They once served us as protection, and that honor we need to meet the shadowy sides with.
-Embrace and acceptance transform the banished parts and emotions in us, and pave the way for the feeling of wholeness in us and that we are complete and perfect. You can only be happy about that :)
-
-Just as in a dialogue with your spiritual guides, God in you, the Universe - dialogue is also an important tool to redeem and unite you with your shadowy sides.
-
-You can redirect your consciousness to feel authentic self-love, and here you are connected to your soul - and here you have the feeling of who your soulful self is and that you have everything you need every single moment. Your being is more than enough.
-
-Know that you are your soulful self in a body on the physical earth, and that your soul / you are connected to the entire energy field of the universe. The energy everything is created by, and in which everything in life takes place. You are unique in your unique way, and what you miss is most likely the access to the love / energy that your soul is connected to.
-
-Lightness and zest for life are felt when you are connected to the energy of the Universe. Here it is impossible to feel something in you must be rejected, here all the good in and for you falls into place, as the most natural choice you make in life.    
-This is were you know you are seen, you are supported and loved by God, the creative power of the Universe. It is ultimate Freedom.
-
 
 **Frygt ikke dine følelser, for de er dine bedste læremestre.**
 
