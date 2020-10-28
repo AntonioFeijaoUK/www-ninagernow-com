@@ -19,7 +19,9 @@ The dark is the denial of the light and we are often fearful of our light than o
 
 ---
 
-## [Klik her for dansk version](https://translate.google.com/translate?hl=&sl=auto&tl=da&u=https%3A%2F%2Fninagernow.com%2F)
+## [Klik her for Dansk version](https://translate.google.com/translate?hl=&sl=auto&tl=da&u=https%3A%2F%2Fninagernow.com%2F)
+
+## [Click here for English version](https://ninagernow.com/)
 
 ---
 
