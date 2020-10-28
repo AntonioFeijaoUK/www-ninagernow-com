@@ -64,6 +64,7 @@ Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig fra a
 
 ---
 
-Being who you are is exactly what the world has been waiting for. Everything happens through you. Your job is to direct the light shining through you by intendly focusing it, where goodness needs to grow. Just by excisting, you help the world exspand. When you know the value of your being, it is at that point every moment of your doing will be inspired and impactful.
+At være den, vi er, er præcis, hvad verden har ventet på. Alt sker gennem os. Vores job er at lede lyset, der skinner igennem os ved bevidst at fokusere på det gode, det sande og kærligheden. Bare ved at eksistere herfra hjælper vi verden med at udvide sig. Når vi kender værdien af vores væsen, vil det vi gør inspirere og have indflydelse på os selv og omverdenen. 
+
 
 
