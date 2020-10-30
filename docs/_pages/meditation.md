@@ -10,7 +10,7 @@ permalink: /meditation/
 
 - Rikke Hertz (forfatter ‘Spirituel’ 2018)
 
-**Jo bedre jeg har det med mig selv, jo bedre har jeg det med den verden, jeg lever i. **
+**Jo bedre jeg har det med mig selv, jo bedre har jeg det med den verden, jeg lever i.**
 
 - Matt Kahn
 
