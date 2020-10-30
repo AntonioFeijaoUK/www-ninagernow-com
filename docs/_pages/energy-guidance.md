@@ -1,9 +1,9 @@
 ---
-title: "Energy Guidance"
+title: "Energi Guidance"
 permalink: /energy-guidance/
 ---
 
-Energy Guidance page.
+Energi Guidance page.
 
 
 
