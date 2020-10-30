@@ -1,13 +1,13 @@
 ---
 permalink: /about/
-title: "About Nina"
+title: "Om Nina"
 ---
 
 Nina Gernow, like to recoqnize oneness
 
 ![Nina Gernow](/assets/images/nina-gernow-photo-small01.jpg) 
 
-About Nina Gernow
+Om Nina Gernow
 
 ## Min spirituelle rejse
 
