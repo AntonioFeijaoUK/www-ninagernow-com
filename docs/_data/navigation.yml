@@ -1,6 +1,8 @@
 main:
   - title: "Home"
     url: /
+  - title: "About"
+    url: /about/
   - title: "Soul-Guidance"
     url: /soul-guidance/
   - title: "Meditation"
@@ -9,5 +11,7 @@ main:
     url: /energy-guidance/
   - title: "Shadow-Work"
     url: /shadow-work/   
-  - title: "About"
-    url: /about/
+  - title: "categories"
+    url: /categories/
+  - title: "Tags"
+    url: /tags/
