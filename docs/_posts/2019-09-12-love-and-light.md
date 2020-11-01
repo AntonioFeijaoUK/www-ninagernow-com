@@ -9,12 +9,7 @@ tags:
   - light
 ---
 
-# Love and Light
-
-**Love and Light**, we are it and have it within!
-
-The connection to our great inner being, to our true and higher self is living a purposeful life.
-And isn't what we are seeking true life's journey?
+**Love and Light**, we are it and have it within! The connection to our great inner being, to our true and higher self is living a purposeful life. And isn't what we are seeking true life's journey?
 
 In whatever area you seeek transformation - in the area of self-love, health, romantic love, carriere, wealth and partnership - it all comes back to where you are centered in and where you gain power from. 
 
