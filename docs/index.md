@@ -15,40 +15,15 @@ header:
       url: "https://www.NinaGernow.com"
 ---
   
-The dark is the denial of the light and we are often fearful of our light than of our darkness (shadows). In meditation is a place where no conflict resides.
+> The dark is the denial of the light and we are often fearful of our light than of our darkness (shadows). In meditation is a place where no conflict resides.
+> 
+> quote by...
 
 ---
-
-## [![Danish Version](/assets/images/Denmark-flag-64px.png)Klik her for Dansk version](https://translate.google.com/translate?hl=&sl=en&tl=da&u=https%3A%2F%2Fninagernow.com%2F)
 
 ## [![United-Kingdom-Great-Britain-flag](/assets/images/United-Kingdom-Great-Britain-flag-48px.png)Click here for English version](https://translate.google.com/translate?hl=&sl=da&tl=en&u=https%3A%2F%2Fninagernow.com%2F)
 
-## [Click here for original version](https://ninagernow.com/)
-
 ---
-
-# Believe & Trust
-
-To resolve the situation you must believe that everything is healed and whole right now. As your Faith grows stronger your doorway to divine solutions will open.
-Your Trust enables your mind and body to relax which increases your creative energy and strength.
-Give worries to God, the Angels, Spirit Guides and Trust the proces. Believe in Yourself.
-
-Every one can communicate and partner with spirit beings in creating and rewiring old programming and upgrade our Love & Light.
-
-Spirit guides are here to support your up-level into a higher realm of reality. The 5th dimension.
-
-Our Soul are send to the physical dimension to step into the Love & Light.
-
-It will anchor you more deeply into your Soul, while you are walking and talking as a human being.
-
-There is no better time than now to move out of 3D and into the 5D. Leave behind the life of pain, suffering and struggle and accelerate in the beautiful life of the 5th dimension.
-
-It is available for everyone. It is possible to connect to The Universal force-field, Source, God energy just by putting your attention on it. It sits in the stillness, in the background in your consciousness behind the physical dimension. Meditation and Breath is a huge access to this inner light of power.
-
-I love you to get in touch with your feminine power - your intuition, and from here connect you with the Universal Life Force. It will both clear your old story of yourself out of the way, and pave the way to awaken the true power of your soul.
-
-
-
 
 ## Tro & tillid
 
