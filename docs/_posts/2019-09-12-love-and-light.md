@@ -3,10 +3,13 @@ title: 'Love and Light!'
 author: 'Nina Gernow'
 author_profile: true
 categories:
-  - blog
+  - Blog
+  - Support
+  - Education
 tags:
   - love
   - light
+  - self-helping
 ---
 
 **Love and Light**, we are it and have it within! The connection to our great inner being, to our true and higher self is living a purposeful life. And isn't what we are seeking true life's journey?
