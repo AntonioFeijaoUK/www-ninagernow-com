@@ -1,6 +1,5 @@
 ---
-title: 'This my update!'
-layout: "single"
+title: 'another-posts!'
 author: 'Nina Gernow'
 author_profile: true
 categories:
