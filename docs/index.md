@@ -15,7 +15,8 @@ header:
       url: "https://www.NinaGernow.com"
 ---
   
-> 
+Velkommen til mit univers for coaching, healing og meditation.
+
 
 ## 1: At være i kontakt med vores dybeste ønsker, forbinder os med vores egen styrke##
 
