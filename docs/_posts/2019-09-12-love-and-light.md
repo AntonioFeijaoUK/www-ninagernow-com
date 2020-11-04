@@ -27,8 +27,9 @@ Formålet med livets rejse, skulle også gerne være en fornøjelse fyldt med gl
 
 
 ## Now that was fun
+ Neale Donald Walsch.
  
- -  Neale Donald Walsch nævnte dette, som en mulig tekst på hans gravsten:)Hans måde at se livet på, inspiredede mig til at sætte hans ord herpå.
+ Hannævnte dette, som en mulig tekst på hans gravsten. Hans måde at se livet på, inspiredede mig til at sætte hans ord herpå.
  
 Det handler ikke om at være perfekt eller styre livet på en sikker og forudsigelig måde. Det kan let føre til at leve et begrænset liv.
 
