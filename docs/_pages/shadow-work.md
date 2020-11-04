@@ -1,6 +1,6 @@
 ---
-title: "Skyggearebjde"
-permalink: /skyggearbejde/
+title: "Coaching"
+permalink: /Coaching/
 ---
 
 
