@@ -12,7 +12,7 @@ author_profile: true
 
 
 
-Alt er energi, og vi er forbundet med alt. Vi er på samme tid også en unik sjæl, som vi oplever livet gennem, i vores fysiske krop, i en fysisk verden.
+Alt er energi, og vi er også energi, forbundet med det uendelige felt af energi. Vi er på samme tid også en unik sjæl, som vi oplever livet gennem, i vores fysiske krop, i en fysisk verden.
 
 Vores sjæleliv har vi ikke et nuanceret sprog for, navnlig ikke i den vestlige verden. Men det er via vores sjæl, at vi lettere kan forbinde os med den universelle energi, der rummer alt. For nemheds skyld nævner jeg her forskellige navne, der bruges om dette felt: Universet, Kilden, Højere Bevidsthed, Det Åndelige, Det Guddommelige, Kristusbevidsthed og Gud. 
 
@@ -59,7 +59,7 @@ Vores guider kan også omrokere på vores indre verden, så de henleder vores op
 Svaret er rigtigt for os, når vi ‘genkender’ at det er vores svar - det, som vi behøver at vide.
 
 Meditation er en fantastisk måde at komme i den rette tilstand på. Her kan vi let skabe momentum i at være i en konsistent tilstand af afslappethed og af fredfyldthed. Det kræver lidt øvelse ligesom det kræver lidt øvelse at notere dos, hvordan information kommer til os - i ord, billeder eller en stærk tilskyndelse. Vores opgave er at stille op til audiens for at modtage.
-
-Din sjæl vokser tydeligere frem, og det er din sjæls formål, at du viser og udtrykker dig som dit naturlige sande selv i dit liv. Din sjæl ønsker at du skal leve og bidrage i en rolle, som giver dig glæde og fred og som opfylder dine ønsker i livet samtidig med at du bidrager positivt for andre. Herved højnes mening og kærlighed i livet - ikke bare for dig selv, men også for alle som du kommer i kontakt med på livets rejse.
+ er
+Vores din sjæls formål, at vi viser og udtrykker os i vores liv. Sjælen ønsker at vi lever og bidrager som giver os glæde tilbage. Herved højnes mening og kærlighed i livet - ikke bare for os selv, men også for alle som vi kommer i kontakt med på livets rejse.
 
 
