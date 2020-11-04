@@ -17,7 +17,7 @@ header:
   
 > The dark is the denial of the light and we are often fearful of our light than of our darkness (shadows). In meditation is a place where no conflict resides.
 > 
-> quote by...
+**Debbie Ford and Deepak Chopra**
 
 ---
 
@@ -51,7 +51,9 @@ Meditation is the space of silence, it opens the sense of connectedness with one
 
 The meditation is like an open window where the consciousness takes form. It is the residence of the soul and we anchor in the light & love we truly are.
 
+**Matt Kahn**
+
 > Meditation - A way into the light.
 
 
-[About Nina Gernow - Spritual empowerment coach](https://ninagernow.com/about/)
+[About Nina Gernow - Spritual rådgiver, coach og healer](https://ninagernow.com/about/)
