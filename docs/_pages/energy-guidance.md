@@ -1,9 +1,9 @@
 ---
-title: "Energi Guidance"
-permalink: /energy-guidance/
+title: "Healing"
+permalink: /Healing/
 ---
 
-Energi Guidance page.
+Healing.
 
 
 
@@ -16,7 +16,7 @@ Energi Guidance page.
  
  -Don Miguel Ruiz 
  
-Energiheling er at sætte lys på det ubevidste - de indre blokeringer, og at frigøre indre ubalancer og at skabe en ny programmering.
+Coaching er at sætte lys på det ubevidste - de indre blokeringer, og at frigøre indre ubalancer og at skabe en ny programmering.
   
 Vores intuition - vores feminine kraft taler til os, nemmere når vi er afslappet og har indre fred. Vores intuition er signalet fra vores sjæl, som ønsker kommunikere budskaber til os om, hvilken vej der er god for os og for vores liv. Intuitionen sender subtile signaler fra den ikke-fysiske verden.
   
