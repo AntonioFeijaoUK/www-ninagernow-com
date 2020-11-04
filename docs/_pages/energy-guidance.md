@@ -16,23 +16,20 @@ Healing.
  
  -Don Miguel Ruiz 
  
-Coaching er at sætte lys på det ubevidste - de indre blokeringer, og at frigøre indre ubalancer og at skabe en ny programmering.
+Healing kan frigøre fastlåste begrænsninger og indre blokeringer, således at der kan skabe en ny programmering.
   
-Vores intuition - vores feminine kraft taler til os, nemmere når vi er afslappet og har indre fred. Vores intuition er signalet fra vores sjæl, som ønsker kommunikere budskaber til os om, hvilken vej der er god for os og for vores liv. Intuitionen sender subtile signaler fra den ikke-fysiske verden.
+Vores intuition og vores feminine kraft er signalet fra vores sjæl, som ønsker kommunikere budskaber til os. Hvilken vej er god for os og for vores liv. Intuitionen sender subtile signaler fra den ikke-fysiske verden.
   
-Vores intuition taler ikke højt - ligesom vores følelser, skønt intuitionen kommer altid for vort højeste gode og fra vort hjerte.
+Vores intuition taler ikke højt - ligesom vores følelser, skønt intuitionen kommer altid for dybe visdom i kroppen.
  
-Vi er forbundet til universets energi gennem vores bevidsthed, og at træde ind i det højere bevidsthedsfelt fører til en mirakuløs transformation. Bevidsthed behøver ikke helbredelse, vi kan straks træde ind den, mærke skiftet på et kort øjeblik. 
+Vi er forbundet til universets energi gennem vores bevidsthed, og at træde ind i et højere bevidsthedsfelt fører til transformation. Bevidsthed behøver ikke helbredelse, vi kan straks træde ind den, mærke skiftet på et kort øjeblik. 
 
 Det kan opleves, som at leve fra det sande og rigtige sted i vores liv. Det hele starter med bevidsthed og valg af egenkærlighed.
 
-Vi er hver især den vigtigste person i hvert vort liv. At passe på os selv, fylde vores krop med selvkærlighed og sørge for, at vores behov er opfyldt, åbner op for at modtage strømmen af glæde og lykke. Vi er den, der åbner porten til den uendelige energi, ingen anden kan gøre dette for os. Det er op til os at beslutte, hvornår vi har brug for hvile, og hvornår vi har brug for at være aktive. 
+Vi er hver især den vigtigste person i hvert vort liv. At passe på os selv, fylde vores krop med kærlige valg og sørge for, at vores behov er opfyldt, åbner op for at modtage strømmen af gode oplevelser. Vi er den, der åbner porten til et dejligt liv, ingen anden kan gøre dette for os. Det er f.eks. op til os at beslutte, hvornår vi har brug for hvile, og hvornår vi har brug for at være aktive. 
 
-Vores følelser indikerer hvad der er vores dybeste behov, men ofte har sindet tanker om, hvad vi bør gøre. Forpligtelser og ansvar fylder og derfor får vi ikke lyttet til hverken følelserne eller intuitionen.
+Vores følelser indikerer hvad der er vores behov, men ofte har sindet tanker om, hvad vi bør gøre. Forpligtelser og ansvar fylder og derfor får vi ikke lyttet til hverken følelserne eller intuitionen. Nogle gange er det ro vi har brug for. Nogle gange er det inspiration. Nogle gange er det følelser som må rummes. 
 
-Nogle gange er det ro vi har brug for. Nogle gange er det inspiration, vi har brug for. Nogle gange er det følelser som må rummes.Uanset så er tilliden til at vi får hjælp, når vi er i kontakt os selv indefra, der ikke er bundet til forpligtelser. 
-
-Træk vejret dybt, og lad liv svæve ind. Ånde ind og ud får os til at slappe af i både vores krop og psykiske sind. Det er signalet om, at vi er åben for at kunne modtage. Vi kan give slip og lade energi komme ind.
 
 At balancere vores krop og vores sind er nødvendigt, for at energien kan strømme gennem os. Vores naturlige værenstilstand er uendelig harmoni. Balanceret energi, der bevæger sig let mellem indre og ydre livsudtryk, ying og yang, det maskuline og feminine er naturligt. Vi er alle udtryk for begge former for energi, og det er nødvendigt for livets opfyldelse.
 
