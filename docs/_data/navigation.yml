@@ -1,16 +1,16 @@
 main:
-  - title: "Home"
+  - title: "Forside"
     url: /
-  - title: "About"
-    url: /about/
-  - title: "Soul-Guidance"
-    url: /soul-guidance/
+  - title: "Om"
+    url: /Om/
+  - title: "Guidance for Sjælen"
+    url: /Guidance for Sjælen/
   - title: "Meditation"
     url: /meditation/
-  - title: "Energy-Guidance"
-    url: /energy-guidance/
-  - title: "Shadow-Work"
-    url: /shadow-work/   
+  - title: "Healing"
+    url: /Healing/
+  - title: "Coaching"
+    url: /Coaching/   
   - title: "categories"
     url: /categories/
   - title: "Tags"
