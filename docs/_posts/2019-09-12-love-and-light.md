@@ -14,27 +14,27 @@ tags:
 
 **Love and Light** 
 
-Vi er kærlighed og lys, og har altid været det. Vi er her på jorden for at blive mindet om det, og komme tilbage i vores sande sjælfulde selv og leve livet herfra. Forbindelse til vores sande og bevidste selv, og at leve et meningsfuldt målrettet liv, er det, vi søger i livet?
+Vi er kærlighed og lys. Vi er her på jorden for at blive mindet om det, og komme tilbage til vores sande sjælfulde selv og leve livet herfra. Forbindelse til vores bevidste og autentiske selv, og at leve et meningsfuldt målrettet liv, er det, vi søger i livet?
 
 Ingen har opdaget en nem formula hertil, og det mange heriblandt mig selv har brugt mange år på at erfare og lære, ønsker jeg at videregive.
 
 Uanset om det er selvkærlighed, sundhed, romantisk partnerskab, karriere, succes og rigdom, som vi ønsker forandring og transformation af, går vejen indad i os selv, de hvor vi er centreret i hjerte og krop, og hvor vores power og magi ligger til at ændre det, vi ønsker at ændre og udvide.
 
-Vi er alle et væsen af "kærlighed og lys" - "Love & Light". Det kræver tapperhed hver gang, at komme tilbage til jorden i fysisk form, for netop at udvide vores sjæls vækst til at blive et højere udtryk for kærlighed og det unikke lys, som vi hver især er. Vores sjæls formål er, at vi skal vide, føle, og udtrykke den kærlighed, vi er.
+Vi er alle et væsen af "kærlighed og lys" - "Love & Light". Det kræver tapperhed hver gang, at komme tilbage til jorden i fysisk form, for netop at udvide vores sjæls vækst til at blive et højere udtryk for kærlighed og det unikke lys, som vi hver især er. Vores sjæls formål er, at vi skal vide, føle, opleve og udtrykke den kærlighed, vi er.
 
-Formålet med livets rejse, skulle også gerne være en fornøjelse fyldt med glæde, sjov, spænding, kærlighed, og accept af konflikter, nederlag, tab og afvisning, som også er en del af den læringskurve vores liv er.
+Formålet med livets rejse, skulle også gerne være en fornøjelse fyldt med glæde, sjov, spænding, kærlighed, og accept af konflikter, nederlag, tab og afvisning, som også er en del af den læringskurve livet er.
 
 
 
-## Now that was fun##
+## Now that was fun
  
- -  Neale Donald Walsch nævnte dette, som en mulig tekst på hans gravsten:)
+ -  Neale Donald Walsch nævnte dette, som en mulig tekst på hans gravsten:)Hans måde at se livet på, inspiredede mig til at sætte hans ord herpå.
  
-Det handler ikke om at være perfekt eller styre livet på en sikker og forudsigelig måde. Det kan let føre til at leve et lille og begrænset liv.
+Det handler ikke om at være perfekt eller styre livet på en sikker og forudsigelig måde. Det kan let føre til at leve et begrænset liv.
 
-Det handler mere om modstandsdygtighed og vores evne til at rejse os i nederlag og uforudsigelige situationer. Kærlighed er en uhyre stærk kraft, som kan få nye højder af personlig power op i os. 
+Det handler mere om modstandsdygtighed og vores evne til at rejse os i nederlag og uforudsigelige situationer. Egenkærlighed er en uhyre stærk kraft, som kan få stor styrke op i os. 
 
-Følgende  er 3 øvelser til at komme i kontakt med egenkærlighed, vores guider og vores visdom, der ved, at alt vi har oplevet har været til gavn for, at vi kunne udvide os og transformere det, som vi kom her for at lære.
+Følgende  er 3 øvelser til at komme i kontakt med egenkærlighed, visdom gennem vores sjæl og dets guider. Den del af os, der ved, at alt vi har oplevet har været til gavn for, at vi kunne udvide os og transformere det, som vi kom her for at lære.
  
 
 
