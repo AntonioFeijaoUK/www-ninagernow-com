@@ -12,7 +12,7 @@ author_profile: true
 
 
 
-Alt er energi, og vi er energi forbundet med alt. Vi er på samme tid også en sjæl, som vi oplever livet gennem, i vores fysiske krop, i en fysisk verden.
+Alt er energi, og vi er forbundet med alt. Vi er på samme tid også en unik sjæl, som vi oplever livet gennem, i vores fysiske krop, i en fysisk verden.
 
 Vores sjæleliv har vi ikke et nuanceret sprog for, navnlig ikke i den vestlige verden. Men det er via vores sjæl, at vi lettere kan forbinde os med den universelle energi, der rummer alt. For nemheds skyld nævner jeg her forskellige navne, der bruges om dette felt: Universet, Kilden, Højere Bevidsthed, Det Åndelige, Det Guddommelige, Kristusbevidsthed og Gud. 
 
