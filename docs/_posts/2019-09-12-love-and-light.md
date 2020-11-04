@@ -39,17 +39,17 @@ Følgende  er 3 øvelser til at komme i kontakt med egenkærlighed, visdom genne
 
 
 
-**Øvelse 1:
+ **Øvelse 1:
 Find frem til en indre og kropslig afslappethed som i meditation. Brug åndedrættet til at afstresse kroppen, berolige nervesystemet og sindet. 
 I en tilstand af lethed og ro, er det invitation til at komme i dialog med vores sjæls guider. Lad tvivlen ligge og gør klar til at modtage visdom fra det indre, som er forbundet med det ydre. 
 Det kan mærkes som energi,eller en fornemmelse af, at være i kontakt med noget eller med nogen. 
 Det er som at forestille os i begyndelsen. Vi kan stille vores sjæl eller dets guider et spørgsmål, der har mening for os. Svaret kan komme som en tanke eller en impuls af energi i kroppen. Med øvelse over tid, vil oplevelsen af at vi kommunikerer med vores sjæls guider udvikle sikkerhed om, at vi rent faktisk er i dialog.
 
-**Øvelse 2: 
+ **Øvelse 2: 
 Find det tidspunkt, hvor det føles modigt og stå foran spejlet. Formålet er at møde os selv, ved at se os direkte i øjene med dybt nærvær. Det kan virke grænseoverskridende, men giver en stærkere kontakt med os selv, når det gøres regelmæssigt. 
 Vi kan fornemme, hvem er det der ser ud af vores øjne - som husker, og mærker det, der har betydning for os i vores liv og som vil det bedste for os i vores liv. Det er også en måde at være i dialog med vores sjæl.
 
-**Øvelse 3: 
+ **Øvelse 3: 
 Find en stille stund, hvor målet er "at være" uden distraktioner, som i meditation. Mærk den stilhed som ikke er personligheden. Altså vores identifikation med den historie, vi fortæller om os selv.Det er for, at vi kan mærke "os selv", vores sjæl og vores iboende kraft. 
 Egenkærlighed er det vigtigste, til andre i vores liv og accept på livet, vi lever. Det er godt, at minde os om at vi er og vokser af kærlighed, og at vi har kraften i os, til at forandre det vi vil. 
 Vi behøver at sætte ind med anerkendelse på en kærlighedskontoen til os selv hver evig eneste dag.
