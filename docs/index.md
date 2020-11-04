@@ -16,6 +16,7 @@ header:
 ---
   
 > 
+
 ## 1: At være i kontakt med vores dybeste ønsker, forbinder os med vores egen styrke##
 
 ## 2: At åbne op for den iboende kraft, er vigtig at få adgang til, når der skal ske forandringer##
