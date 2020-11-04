@@ -60,21 +60,6 @@ Svaret er rigtigt for os, når vi ‘genkender’ at det er vores svar - det, so
 
 Meditation er en fantastisk måde at komme i den rette tilstand på. Her kan vi let skabe momentum i at være i en konsistent tilstand af afslappethed og af fredfyldthed. Det kræver lidt øvelse ligesom det kræver lidt øvelse at notere dos, hvordan information kommer til os - i ord, billeder eller en stærk tilskyndelse. Vores opgave er at stille op til audiens for at modtage.
 
-I det følgende er 3 små øvelser, som kan praktiseres dagligt:
-
-**Øvelse 1: 
-Find frem til en indre og kropslig afslappethed som i meditation, ved at brug åndedrættet til at afstresse kroppen, berolige nervesystemet og sindet. Når vi befinder os i en tilstand af lethed og ro, er det invitationen til at komme i dialog med vores sjæls guider. Vi må lade tvivlen ligge og gøre os klar til at modtage visdom fra vores indre. 
-Det er som at sige "Nu er jeg klar", til at begynde kommunikationen. Det kan mærkes i vores energi,og kan give en fornemmelse af, at vi er i kontakt med noget eller med nogen. 
-Her kan vi forestille os, at vi stille vores sjæl eller dets guider et spørgsmål, der har mening for os. Svaret kan komme som en tanke eller en impuls til at gøre noget. Med øvelse over tid, vil oplevelsen af at vi kommunikerer med vores sjæls guider udvikle sikkerhed om, at vi er i dialog.
-
-**Øvelse 2:
-Find det tidspunkt, hvor det føles modigt og stå foran spejlet, for at vi kan møde vores sjæl ved at se os selv direkte i øjenen med dybt nærvær. Det giver en stærkere forbundethed med os selv, hvis det gøres regelmæssigt f.eks. hver morgen og aften. 
-Vi kan spørge og fornemme, hvem er det der ser ud af vores øjne - som husker, som mærker det, der har betydning for os i vores liv og som vil det bedste for os i vores liv. Det er også en måde at være i dialog med vores sjæl og dets guider.
-
-**Øvelse 3: 
-Find tidspunktet, hvor bare at være uden distraktioner for en stund er mulig, som i meditation. Mærk den stilhed som ikke er vores personlighed. Det er vores essens. Det er her vi kan mærke "det mig", der elsker, og tror og ved, at vi har en lang række af valg og oplevelser bag os. Og som også ved, at de alle har været til gavnlige for os.
-For at vi, vores sjæl kunne lære og transformere det, den kom her for at udvikle. Vores essens er kærlighed til os selv, som det vigtigste, til andre og til livet, vi lever. Det er godt, at minde os om at vi er og vokser af kærlighed. Og at vi behøver en kærlighedskonto, som vi sætter ind på hver evig eneste dag.
-
 Din sjæl vokser tydeligere frem, og det er din sjæls formål, at du viser og udtrykker dig som dit naturlige sande selv i dit liv. Din sjæl ønsker at du skal leve og bidrage i en rolle, som giver dig glæde og fred og som opfylder dine ønsker i livet samtidig med at du bidrager positivt for andre. Herved højnes mening og kærlighed i livet - ikke bare for dig selv, men også for alle som du kommer i kontakt med på livets rejse.
 
 
