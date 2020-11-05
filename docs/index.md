@@ -15,15 +15,16 @@ header:
       url: "https://www.NinaGernow.com"
 ---
   
-Velkommen til mit univers for coaching, healing og meditation. I mit arbejde med børn og deres familier i henved 30 år, erfarede jeg, at ved at behandle børn ens, må de behandles forskelligt. Fordi de hver især har deres særegne karakter og kvaliteter.
+Velkommen til mit univers for coaching, healing og meditation. 
+I mit arbejde med børn og deres familier i henved 30 år, erfarede jeg, at ved at behandle børn ens, må de behandles forskelligt. Fordi de hver især har deres særegne karakter og kvaliteter.
 Det samme gælder, når vi er blevet voksne. Vi har hver vores vej, som giver os det meningsfulde liv. Alligevel er der for mig 3 vigtige elementer, der er gode at navigere vores liv efter. De er følgende:
 
 
-## 1: At være i kontakt med vores dybeste ønsker, forbinder os med vores egen styrke##
+## 1: At være i kontakt med vores dybeste ønsker, forbinder os med vores egen styrke
 
-## 2: At åbne op for den iboende kraft, er vigtig at få adgang til, når der skal ske forandringer##
+## 2: At åbne op for den iboende kraft, er vigtig at få adgang til, når der skal ske forandringer
 
-## 3: At være i sunde relationer giver muligheder for, at vokse, skabe og få støtte i fællesskaber##
+## 3: At være i sunde relationer giver muligheder for, at vokse, skabe og få støtte i fællesskaber
  
 
 ---
