@@ -7,10 +7,6 @@ main:
     url: /sjaelens-guider/
   - title: "Meditation"
     url: /meditation/
-  - title: "Healing"
-    url: /healing/
-  - title: "Coaching"
-    url: /coaching/   
   - title: "categories"
     url: /categories/
   - title: "Tags"
