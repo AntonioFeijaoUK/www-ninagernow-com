@@ -4,7 +4,11 @@ main:
   - title: "Om"
     url: /om/
   - title: "Sjælens Guidance"
-    url: /sjaelens-guider/
+    url: /soul-guidance/
+  - title: "Coaching"
+    url: /coaching/
+  - title: "Healing"
+    url: /healing/
   - title: "Meditation"
     url: /meditation/
   - title: "Categories"
