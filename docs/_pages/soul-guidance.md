@@ -1,6 +1,6 @@
 ---
 title: "Sjælens Guider"
-permalink: /sjaelens-guider/
+permalink: /soul-guidance/
 author_profile: true
 ---
 
