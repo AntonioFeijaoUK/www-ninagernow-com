@@ -1,6 +1,6 @@
 ---
 title: "Healing"
-permalink: /Healing/
+permalink: /healing/
 ---
 
 Healing.
