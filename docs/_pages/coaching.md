@@ -1,6 +1,6 @@
 ---
 title: "Coaching"
-permalink: /Coaching/
+permalink: /coaching/
 ---
 
 
