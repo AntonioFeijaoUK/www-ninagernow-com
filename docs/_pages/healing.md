@@ -1,15 +1,3 @@
----
-title: "Healing"
-permalink: /healing/
----
-
-Healing.
-
-
-
-**Et forhold er mere en opgave end et valg. Vi kan gå væk fra opgaven, men vi kan ikke gå væk fra de lektioner, den præsenterer. Vi forbliver i et forhold, indtil en lektion er lært, eller vi lærer det bare en anden måde.**
-
- - Marianne Williamson
 
 
 **Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
