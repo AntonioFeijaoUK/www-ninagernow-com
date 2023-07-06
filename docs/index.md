@@ -1,5 +1,5 @@
 ---
-title: "Nina Intuitive Guide"
+title: "Nina Intuitive Guide & Coach"
 permalink: /
 author_profile: false
 
@@ -8,7 +8,7 @@ tagline: "The person I am seeking is also seeking me"
 header:
   overlay_image: "/assets/images/photo-balance101.jpeg"
   overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
-  image_description: "Nina Soul Acceleration, The person I am seeking is also seeking me"
+  image_description: "Nina Intutive Guide & Coach, The person I am seeking is also seeking me"
   caption: "Photo by [@martinsanchez](https://unsplash.com/@martinsanchez)"
   actions:
     - label: "Nina Gernow"
@@ -68,4 +68,4 @@ The meditation is like an open window where the consciousness takes form. It is 
 > Meditation - A way into the light.
 
 
-[About Nina Gernow - Spritual rådgiver, coach og healer](https://ninagernow.com/about/)
+[About Nina Gernow - Intuitive Guide & Coach](https://ninagernow.com/about/)
