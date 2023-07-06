@@ -11,11 +11,11 @@ Om Nina Gernow
 
 ## Min spirituelle rejse
 
-- Efter mere end 10 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, er jeg endelig blevet spirituel rådgiver, healer og coach i personlig transformation, som jeg ønskede i mit hjerte. Alle mine timer i stilhed ledte mig til kontakten med min sjæl, styrkede min intuition til at følge min vej, således at jeg idag kan udtrykke mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
+- Efter mere end 20 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, har jeg endelig fundet min vej til at virke som; Intutive Guide og Coach. Alle mine timer i stilhed ledte mig til kontakten med min sjæl, styrkede min intuition til at følge min vej, således at jeg idag kan udtrykke mig og leve efter mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
 
-Udover det har jeg arbejdet med børn og deres familier i skole og dagtilbud i næsten 3 årtier.
+Udover det har jeg arbejdet med børn og deres familier i skole og dagtilbud i 3 årtier.
 
-Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig til at gå fra at leve et begrænset liv til at leve mit liv i glæde og tillid.
+Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig til at gå fra at leve et begrænset liv til at leve mit liv mere bevidst og i harmoni.
 
 **The Ford Institute for Transformational Training. Future Focused Leadership Program.**
 
