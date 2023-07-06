@@ -1,6 +1,6 @@
 ---
 title: Intuitive Guide
-permalink: /Intuitive Guide/
+permalink: /intuitive-guide/
 author_profile: 
 ---
 
