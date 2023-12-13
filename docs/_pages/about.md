@@ -11,7 +11,7 @@ Forældreskab
 
 ## Bevidst Forældreskab
 
-- Efter mere end 20 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, har jeg endelig fundet min vej til at virke som; Intutive Guide og Coach. Alle mine timer i stilhed ledte mig til kontakten med min sjæl, styrkede min intuition til at følge min vej, således at jeg idag kan udtrykke mig og leve efter mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
+- Efter mere end 20 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, har jeg endelig fundet min vej til at virke som; Spirituel Guide og Integrativ Coach. Alle mine timer i stilhed ledte mig til kontakten med min sjæl, styrkede min intuition til at følge min vej, således at jeg idag kan udtrykke mig og leve efter mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
 
 Udover det har jeg arbejdet med børn og deres familier i skole og dagtilbud i 3 årtier.
 
@@ -58,7 +58,7 @@ Følgende fællessakber og uddannelssteder har jeg fuldt, som har ledt mig til a
 
 ## Kontakt
 
- - Hvis du har interesse i coaching, healing eller hjælp til at komme i dialog med din sjæl's guider, kontaktes jeg på.
+ - Hvis du har interesse i coaching, healing eller hjælp til at lytte til, stole på og følge din intuition, kontaktes jeg på.
 * Email: ninagernow@gmail.com
 
 
