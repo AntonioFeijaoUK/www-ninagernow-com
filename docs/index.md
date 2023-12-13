@@ -1,5 +1,5 @@
 ---
-title: "Nina Intuitive Guide & Coach"
+title: "Nina Spirituel Integrativ Coach"
 permalink: /
 author_profile: false
 
@@ -8,14 +8,14 @@ tagline: "The person I am seeking is also seeking me"
 header:
   overlay_image: "/assets/images/photo-balance101.jpeg"
   overlay_filter: 0.5 # same as adding an opacity of 0.5 to a black background
-  image_description: "Nina Intutive Guide & Coach, The person I am seeking is also seeking me"
+  image_description: "Nina Spirituel Integrativ Coach, The person I am seeking is also seeking me"
   caption: "Photo by [@martinsanchez](https://unsplash.com/@martinsanchez)"
   actions:
     - label: "Nina Gernow"
       url: "https://www.NinaGernow.com"
 ---
   
-Velkommen til mit univers for coaching, intuitive guidance og meditation. 
+Velkommen til mit univers for coaching,  guidance og meditation. 
 I mit arbejde med børn og deres familier i henved 30 år, erfarede jeg, at ved at behandle børn ens, må de behandles forskelligt. Fordi de hver især har deres særegne karakter og kvaliteter.
 Det samme gælder, når vi er blevet voksne. Vi har hver vores vej, som giver os det meningsfulde liv. Alligevel er der for mig 3 vigtige elementer, der er gode at navigere vores liv efter. De er følgende:
 
@@ -45,7 +45,6 @@ Med mit nærvær  og medfølelse får jeg lov til -med min konfronterende hjerte
 
 ## Tro & tillid
 
-**For at løse situationen skal vi tro på, at alt er healet i os her og nu. Når troen på at vi kan forandre og skabe er stærk, åbnes døren til "guddommelige" løsninger. Det opleves som synkronicitet, som at alt falder på plads på uforklarlig vis.
 Vores tillid til at vi kan skabe og forandre, giver vores sind og krop mulighed for at slappe af, hvilket øger kreative energi og styrke. Giv Gud, Universet, Bevidsthedsstrømmen bekymringerne og stol på livsprocessen.**
 
 Alle kan kommunikere og samarbejde med egen indre kraft til at skabe og omlægge gammel programmering.
@@ -68,4 +67,4 @@ The meditation is like an open window where the consciousness takes form. It is 
 > Meditation - A way into the light.
 
 
-[About Nina Gernow - Intuitive Guide & Coach](https://ninagernow.com/about/)
+[About Nina Gernow - Spirituel Integrativ Coach](https://ninagernow.com/about/)
