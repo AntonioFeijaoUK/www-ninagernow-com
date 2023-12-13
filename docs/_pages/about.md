@@ -1,15 +1,15 @@
 ---
-permalink: /om/
-title: "Om Nina"
+permalink: /Bevidst Forældreskab/
+title: "Bevidst Forældreskab"
 ---
 
 Nina Gernow, like to recoqnize oneness
 
 ![Nina Gernow](/assets/images/nina-gernow-photo-small01.jpg) 
 
-Om Nina Gernow
+Forældreskab
 
-## Min spirituelle rejse
+## Bevidst Forældreskab
 
 - Efter mere end 20 år med daglig meditation, adskillige kurser i personlig transformation, healing og uddannelser som coach i hhv. Danmark og USA, har jeg endelig fundet min vej til at virke som; Intutive Guide og Coach. Alle mine timer i stilhed ledte mig til kontakten med min sjæl, styrkede min intuition til at følge min vej, således at jeg idag kan udtrykke mig og leve efter mit sande og højere selv. Det er min mission at hjælpe andre til at forbinde sig med deres sande og højere selv, forløse gammel programmering i sindet og leve livet fra hjertet.
 
