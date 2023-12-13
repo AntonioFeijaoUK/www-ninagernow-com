@@ -1,14 +1,14 @@
 main:
   - title: "Forside"
     url: /
-  - title: "Om"
-    url: /om/
-  - title: "Intuitive Guidance"
-    url: /intuitive-guidance/
-  - title: "Coaching"
-    url: /coaching/
-  - title: "Meditation"
-    url: /meditation/
+  - title: "Forældreskab"
+    url: /Forældreskab/
+  - title: "Intuitiv guide"
+    url: /intuitie-guide/
+  - title: "Integrativ Coaching"
+    url: /integrativ coaching/
+  - title: "Meditation og Bevidst Åndedræt"
+    url: /meditation og bevidst åndedræt/
  
     
  
