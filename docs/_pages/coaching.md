@@ -10,13 +10,21 @@ permalink: /coaching/
 
  - Elena Angel
  
- **As you start to see the One within you and in others, you become morecompassionate and begin to restore your connection with others and with Source.**
+ **As you start to see the One within you and in others, you become more compassionate and begin to restore your connection with others and with Source.**
  
   - Elena Angel
  
- Vi lærte at tilpasse os til de normer, som vi blev født ind i, vi lærte gradvis fra første stund en socialisering ind i den familie og kultur vi er født ind i. Nogle af de værdier vi voksede op med har hjulpet os, mens andre har ikke. Og det kan tage årtier at vikle os ud af tilpasningen for at finde tilbage og hjem i os selv. De sider og kvaliteter vi lærte at gemme af vejen i tilpasningens navn, må inviteres ind i varmen igen for at vi kan føle os hele og komplette, som vi er!
+ Ønsker du at leve som den mest ideelle version af dig selv, og ønsker du at leve dit liv, som du ønsker det?
+ 
+ Det svarer du højst sandsynligt ja til! Så er du kommet til det rette sted, for det er præcis det, som jeg kan hjælpe dig med.
+ 
+ Det lyder simpelt, og det er det også, selvom det tager en vis portion dedikation til dig selv og din udvikling i at blive mere bevidst om det, der begrænser dig i netop at leve det liv og som den version af dig selv, som du ønsker. 
 
- Som integrativ coach har jeg hjulpet mange til at finde genfinde sine gemte kvaliteter i os selv, som blev forvist til skyggen. Deraf navnnet 'skygge-arbejde'. Idag er der heldigvis udviklet en nemmere måde at genfinde, huske og integrere sine 'skygger' - afviste sider på. Det handler om at flytte fokus på det, som vi ønsker mere af i livet - og som vi føler vi mangler adgang til.
+ Hvis du ønsker at blive rig, få succes eller have et sundt kærlighedsforhold, må dit ønske være i overensstemmelse med din indre overbevisning om, at du kan skabe det. Hvis du dybt i dig selv bærer på en frygt af mangel, vil den frygt neutralisere dit ønske om at skabe det, du ønsker. Din intention om at få dit ønske opfyldt er ikke nok. Intentionen må være forankret i en indre følelse eller indre tilstand af, at dit ønske er sandt fordig og muligt at manifestere i dit liv.
+
+ Vi bærer alle rundt på 'skjulte' begrænsende overbevisninger, der spænder ben for at vi kan manifestere det, som vi ønsker osi livet. Fordi vi lærte at tilpasse os til de normer, som vi blev født ind i. Vi lærte gradvis fra første stund at tilpasse os, en socialisering ind i den familie og kultur vi blev født ind i. Nogle af de værdier vi voksede op med har hjulpet os, mens andre har ikke. Og det kan tage årtier at vikle os ud af tilpasningen for at finde tilbage og hjem i os selv. De sider og kvaliteter vi lærte at gemme af vejen i tilpasningens navn, må inviteres ind i varmen igen for at vi kan føle os hele og komplette, som vi er!
+
+ Som integrativ coach har jeg hjulpet mange til at finde genfinde de gemte kvaliteter vi har iboende os selv, som blev forvist til skyggen. 
 
  Her er de 3 mest gængse begrænsende overbevisninger;
 
@@ -26,17 +34,19 @@ permalink: /coaching/
 
 - Jeg 'kan ikke' få eller skabe det jeg ønsker.
 
-Disse 3 overbevisninger er at the heart of our human disempowerment and pain.
+Disse 3 overbevisninger er kernen i magtesløshed og smerte.
 
-They are so pervasive in our culture, the collctive field of human conciousness,it is hard to meetanyone who doesn't have such negative programming running at some level.
+De er så gennemgribende i vores kultut, og det kollektive felt for menneskelig bevidsthed, at det er svært at møde nogen, der ikke har sådan en programmering kørende på et eller andet niveau.
 
+Hvis håbløshed, frustration, forvirring og kriser har fyldt så længe, at afmagt og tvivlen om, ‘hvem jeg er’ og ‘hvor passer jeg ind’ har overtaget. Så er forbindelsen til vores naturlige sunde og sande selv væk eller noget vi kun i glimt eller sporadisk har kontakt med, og under alle omstændigheder er fundamentet af velvære og balance ikke en stabil størrelse.
 
-Hvis håbløshed, frustration, forvirring og kriser har fyldt så længe, at afmagt og tvivlen om, ‘hvem jeg er’ og ‘hvor passer jeg ind’ har overtaget. Så er forbindelsen til vores naturlige sunde og sande selv væk eller noget vi kun i glimt eller sporadisk har kontakt med, og ihvertfald er fundamentet af velvære og balance ikke en stabil størrelse.
+Udfordringen ligger i at være ærlig overfor os selv, og at turde at føle det svære, og acceptere de valg, der har ført os til, hvor vi er her og nu. Udfordringen er også, ikke at dømme det, som vi ser som negativt. Vi har nemlig brug for polariseringen. Vi kan ikke se lyset uden mørke. Vi kan ikke genkende den positive følelse uden at kende den negative. Polariseringen er fundamentet for, at vi vokser og udvikler os. Vi må bare huske, at vi er bevidste væsener, og derfor kan vælge - uanset om det er en tanke, en følelse eller en handling.
 
-You will receive effortless inspirartion, the guidance and motivation to take the next step in your life. Releasing the constrictions of identity, experiencing the boundlessness of Being is truly liberating, but also to reminder that there is creative purpose in having identities and limltations of circumstance. You have the possibility of taking up any number of identities for the sake of their creative potential, and each relationship has its own value and uniqueness, because of the creative possibilities it offers.
+Fra dette bevidsthedsniveau er det lettere at modtage inspiration og indre vejledning til at tage det næste bedste skridt i eget liv. Og det vil være nemmere at slippe de negative begræsninger i ens roller, og se ærligt på, at der er kreativ udfoldelses muligheder i de roller, som vi tager på os gennem livet. Vigtigst er det, at bevidst vælge hvilken rolle eller hvilket forhold vi ønsker at ekspandere på.
 
-You, the soul derives its energy from Source. As you see yourself as One. you feel more genuine and loving. You feel more joy and love in your heart. You trust life more, which opens you to receive more good things in life.
+Når vi ser os selv som kilden, som skaberen af eget liv, vil vi lettere føle mere ægthed og kærlighed i hjertet. Det vil være lettere at acceptere de valg, som vi har taget op til idag, og stole på vi tager de rette fremover. Derved kommer vi mere i overensstemmelse med, hvem vi er og ønsker at være og vil automatisk modtage mere af det gode i livet - bare ved at forvente det!
 
-You are better able to accept yourself and feel your own worthiness, so that you can share your gifts with others and live a rich, fulfilling life of purpose and joy.
+Tænk at føle din egen værdighed i sådan en grad, at du ikke kan lade være med at udtrykke dig selv og dine kvaliteter, og dele dem med andre i de sammenhænge, som du er en en del af. Det vil naturligt medføre et tilfredsstillende liv med formål og glæde.
+
 
 
