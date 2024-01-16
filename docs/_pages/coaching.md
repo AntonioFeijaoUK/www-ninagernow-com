@@ -18,7 +18,7 @@ permalink: /coaching/
  
  Det svarer du højst sandsynligt ja til! Så er du kommet til det rette sted, for det er præcis det, som jeg kan hjælpe dig med.
  
- Det lyder simpelt, og det er det også, selvom det tager en vis portion dedikation til dig selv og din udvikling i at blive mere bevidst om det, der begrænser dig i netop at leve det liv og som den version af dig selv, som du ønsker. 
+ Det lyder simpelt, og det er det også., Det vil tage en vis portion dedikation til dig selv og din udvikling, for at blive mere bevidst om det, der begrænser dig i netop at leve det liv og som den version af dig selv, som du ønsker. 
 
  Hvis du ønsker at blive rig, få succes eller have et sundt kærlighedsforhold, må dit ønske være i overensstemmelse med din indre overbevisning om, at du kan skabe det. Hvis du dybt i dig selv bærer på en frygt af mangel, vil den frygt neutralisere dit ønske om at skabe det, du ønsker. Din intention om at få dit ønske opfyldt er ikke nok. Intentionen må være forankret i en indre følelse eller indre tilstand af, at dit ønske er sandt fordig og muligt at manifestere i dit liv.
 
