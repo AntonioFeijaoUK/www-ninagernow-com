@@ -1,10 +1,10 @@
 main:
   - title: "Forside"
     url: /
-  - title: "Forældreskab"
-    url: /Forældreskab/
-  - title: "Spirituel guide"
-    url: /spirituel-guide/
+  - title: "Bevidst forældreskab"
+    url: /Bevidst forældreskab/
+  - title: "Spirituel guidence"
+    url: /spirituel-guidence/
   - title: "Integrativ Coaching"
     url: /integrativ coaching/
   - title: "Meditation og Bevidst Åndedræt"
