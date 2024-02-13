@@ -14,7 +14,7 @@ Har du bekymringer i forhold til dit barns trivsel og udvikling?
 
 Eller oplever du noget, der udfordrer i din relation med dit barn?
 
-Så er du kommet til det rette sted. Jeg trækker på mere end 3 årtiers erfaring fra arbejde med børn og forældre i dagtilbud og indskoling. Privat og i mit proffessionelle er min holdning, at forældrene er altid eksperter på deres egne børn. 
+Så er du kommet til det rette sted. Jeg trækker på mere end 3 årtiers erfaring fra arbejde med børn og forældre i dagtilbud og indskoling. Privat og i mit proffessionelt er min holdning, at forældrene er altid eksperter på deres egne børn. 
  At blive forælder er en til tider svæt størrelse. De fleste forældre ønsker, at deres børn undgår at føle smerte og at opleve nederlag. Men det er en del af livet, og som forælder er det vigtigtigere, at hjælpe vores børn gennem læringsmæssige udfordringer, udfordringer i relationer og med sig selv, end at tro at disse udfordringer ikke sker og vil ske under barnets opvækst.
 
 
