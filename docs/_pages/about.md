@@ -27,7 +27,7 @@ Den bedste hjælp vi kan give vores børn er, at arbejde med vores bevidsthed. D
 Vores indre tilstand bestemmer vores resultater i livet. Det vil sige, at ethvert ord vi siger, enhver handling vi foretager os, er en afspejling af vores indre tilstand - i det øjeblik vi siger noget eller foretager handlingen. Så det er uhyre vigtigt, at have fokus på hvad vi, som forældre viser vore børn. Er vi i overensstemmelse med den forælder, som vi ønsker at være. Tør vi vise os sårbare, forvirrede, klodsede og angerfulde!
 -
 - Hvis vi tør vise vores børn, at vi kan være alt, hvad vi er. Vil det vise vores børn og unge, at de også kan være, alt de er. Vi er ikke en statisk størrelse, vi vokser og udvikler os gennem hele livet!
--
+
 - Vores indre tilstand er kilden til de resultater, som vi skaber -også i forældreskabet.
 
 - Børn opfanger mere end det, der ses og høres, for de fornemmer livet på en mere via deres sanser og følelser, og først som skolebørn er derestænkning og refleksion mere i spil. De opfanger det negative i 'sukket', når vi er ved at nå en grænse - eller har overskredet den. Omvendt sanser de også blidheden i stemmen, smilet i øjnene og overskuddet vi har, når vi føler velvære og er i balance. Børn har naturligt brug for frustrationer, fordi det danner også baggrund for en sund udvikling. Det skal dog helst være i passende mængder, for at børnene evner til at 'heale' frustrationer i passende mængde, hvilket gør dem robuste.
