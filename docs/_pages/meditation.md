@@ -1,18 +1,15 @@
 ---
-title: "Meditation"
-permalink: /meditation/
+title: "Meditation og Bevidst Åndedræt"
+permalink: /meditation-og-bevidst-oendedraet/
 ---
-
-
-
 
 **Meditation er at prioritere dig selv. Meditation er fundamentet i at arbejde spirituelt, fordi det er den frekvens, du skal udvikle for at komme i kontakt med de intuitive sider af dig selv.**
 
-- Rikke Hertz (forfatter ‘Spirituel’ 2018)
+> Rikke Hertz (forfatter ‘Spirituel’ 2018)
 
 **Jo bedre jeg har det med mig selv, jo bedre har jeg det med den verden, jeg lever i.**
 
-- Matt Kahn
+> Matt Kahn
 
 
 Meditation og Bevidst åndedræt er blevet brugt i tusinder af år, for at få adgang til den stilhed, som eksisterer hinsides det tænkende sind. Det er i dette 'rum' vores bevidste indre tager form. Bevidst åndredræt og i meditationens rum bliver vi gradvist forløst fra den talende tankestrøm og identifikationen med tankerne. 
