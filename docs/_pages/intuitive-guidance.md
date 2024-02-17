@@ -1,7 +1,7 @@
 ---
-title: Intuitive Guidance
-permalink: /intuitive-guidance/
-author_profile: 
+title: Spirituel guidence
+permalink: /spirituel-guidence/
+#author_profile: 
 ---
 
 **What you desire, desire you**
