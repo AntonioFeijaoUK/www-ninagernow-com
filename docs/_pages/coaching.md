@@ -1,7 +1,7 @@
 
 ---
-title: "Coaching"
-permalink: /coaching/
+title: "Integrativ Coaching"
+permalink: /integrativ-coaching//
 ---
 
 
