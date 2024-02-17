@@ -5,7 +5,8 @@ permalink: /spirituel-guidence/
 ---
 
 **What you desire, desire you**
-- Matt Kahn (Live work-shop, London, May 2019)
+
+> Matt Kahn (Live work-shop, London, May 2019)
 
 
 
