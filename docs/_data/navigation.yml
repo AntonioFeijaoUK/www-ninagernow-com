@@ -1,14 +1,14 @@
 main:
   - title: "Forside"
     url: /
+  - title: "Meditation"
+    url: /meditation-og-bevidst-oendedraet/
   - title: "Bevidst forældreskab"
     url: /bevidst-foraeldreskab/
   - title: "Spirituel guidence"
     url: /spirituel-guidence/
   - title: "Integrativ Coaching"
     url: /integrativ-coaching/
-  - title: "Meditation"
-    url: /meditation-og-bevidst-oendedraet/
- 
+  
     
  
