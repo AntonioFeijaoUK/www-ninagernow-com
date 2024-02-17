@@ -1,4 +1,3 @@
-
 ---
 title: "Integrativ Coaching"
 permalink: /integrativ-coaching//
