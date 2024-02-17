@@ -1,5 +1,5 @@
 ---
-title: "Spirituel guidence
+title: "Spirituel guidence"
 permalink: /spirituel-guidence/
 #author_profile: 
 ---
