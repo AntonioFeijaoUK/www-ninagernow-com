@@ -1,6 +1,6 @@
 ---
 title: "Integrativ Coaching"
-permalink: /integrativ-coaching//
+permalink: /integrativ-coaching/
 ---
 
 
