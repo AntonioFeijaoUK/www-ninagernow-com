@@ -1,3 +1,7 @@
+---
+title: "Healing"
+permalink: /healing/
+---
 
 
 **Hvis jeg elsker mig selv, vil jeg udtrykke den kærlighed i mit forhold til andre. At være ren i sin energi, betyder at, at man bruger sin energi i retning af sandhed og kærlighed.**
