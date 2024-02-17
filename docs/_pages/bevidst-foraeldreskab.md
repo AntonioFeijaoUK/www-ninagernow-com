@@ -1,6 +1,6 @@
 ---
-permalink: /Bevidst Forældreskab/
-title: "Bevidst forældreskab"
+title: "Meditation og Bevidst Åndedræt"
+permalink: /meditation-og-bevidst-oendedraet/
 ---
 
 Nina Gernow, Forældrerollen håndteres bedst med bevidsthed.
