@@ -1,6 +1,6 @@
 ---
 permalink: /Bevidst Forældreskab/
-title: "Bevidst Forældreskab"
+title: "Bevidst forældreskab"
 ---
 
 Nina Gernow, Forældrerollen håndteres bedst med bevidsthed.
